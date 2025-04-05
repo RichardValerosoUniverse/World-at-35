@@ -27,12 +27,12 @@ I am a Filipino from NOTHING!
 
 NOW, you know!
 
-Coconut is a guant nut 🥜.
+Coconut is a giant nut 🥜.
 
 Go to the province and plant Kamote or Kamoteng-Kahoy!
 
-Basically, I am so technical but not am NOT being fooled into believkng something
-that is our of context to my experiences.
+Basically, I am so technical but not I am NOT being fooled into believkng something
+that is OUT of context to my experiences.
 
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable
 to me!
@@ -43,3 +43,5 @@ I love 💕 currencies, cryptography and more.
 
 Again, it is what it is nevertheless.
 Precisely!
+
+Amen!! Hallelujah!
