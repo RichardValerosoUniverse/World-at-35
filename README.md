@@ -31,11 +31,13 @@ Coconut is a giant nut 🥜.
 
 Go to the province and plant Kamote or Kamoteng-Kahoy!
 
-Basically, I am so technical but not I am NOT being fooled into believkng something
-that is OUT of context to my experiences.
+Basically, I am so technical. Hence,I am NOT being fooled into believing something
+that is OUT of context to my experiences. Like in Team Experiences.
 
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable
 to me!
+
+Am I in the Washington State? The answer is Yes. Washington, D.C.
 
 I am insane to be SANE.
 
