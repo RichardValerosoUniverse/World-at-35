@@ -9,5 +9,7 @@ There is NOTHING to prove!
 Get a life and follow Jesus Christ.
 My Time comes.
 Who am I to disagree?
-I am MOT LOST at all.
+I am NOT LOST at all.
 Go to Hell, my enimies!
+
+Why not? COCONUT is a giant nut 🥜 
