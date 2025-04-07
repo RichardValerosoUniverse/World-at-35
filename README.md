@@ -7,7 +7,7 @@ Get a LIFE and remember all the dots.
 Connecting all dots from all sources.
 There is only one powerful and that is GOD. Like Oh My God!
 Building an understanding takes a lot of struggles, sacrifices, confusions,
-and dilemma. A lot of temptations and destructions along the way.
+and dilemma. A lot of temptations andii destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
 greater than what the environment can conceive.
 Life has a myriad definitions, aligning to where you came from.
@@ -47,5 +47,9 @@ Again, it is what it is nevertheless.
 Precisely!
 
 Amen!! Hallelujah!
-Fortissimus In Fide!
-Animo LaSalle!
+
+Fortissimus In Fide! 💪💪💪
+Animo LaSalle! 💪💪💪
+
+Truth hurts but I an the Greatest Alive! 💪💰🤑
+
