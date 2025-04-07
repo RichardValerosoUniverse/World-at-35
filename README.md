@@ -47,3 +47,5 @@ Again, it is what it is nevertheless.
 Precisely!
 
 Amen!! Hallelujah!
+Fortissimus In Fide!
+Animo LaSalle!
