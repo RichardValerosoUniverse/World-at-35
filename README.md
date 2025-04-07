@@ -51,5 +51,5 @@ Amen!! Hallelujah!
 Fortissimus In Fide! 💪💪💪
 Animo LaSalle! 💪💪💪
 
-Truth hurts but I an the Greatest Alive! 💪💰🤑
+Truth hurts but I'm the Greatest Alive! 💪💰🤑
 
