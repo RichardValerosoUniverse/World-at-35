@@ -7,29 +7,21 @@ Get a LIFE and remember all the dots.
 Connecting all dots from all sources.
 There is only one powerful and that is GOD. Like Oh My God!
 Building an understanding takes a lot of struggles, sacrifices, confusions,
-and dilemma. A lot of temptations andii destructions along the way.
+and dilemma. A lot of temptations & destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
-greater than what the environment can conceive.
-Life has a myriad definitions, aligning to where you came from.
-Amidst all adversities in there and here, concentration to where and what and when you can do is
-a mastering of bravery to create what seems to be difficult, yet it is easy since you develop 
-the skillsets needed for the battlefield.
-I am not alone in this journey. I am seriously considering what seems to
-be the better to best.
+greater than what the environment can conceive and attract.
+Life has had different definition, aligning to where you came from, what you went through, and how you perceive life as you think it along the way.
+Amidst all adversities in there and here, concentration to where and what you can do is
+a mastering of bravery and resilience to create what seems to be difficult, yet it is easy since you develop 
+the skillsets as well as mindsets needed to fight in any war you define to be!
+I am not alone in this journey. I am indeed taking into consideration what seems to be better and what seems to be The Best!
+
+https://GitHub.com/RichardValerosoUniverse is a licensed owner of the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith to God and how you become an impact on somebody's life.
 
 
-https://GitHub.com/RichardValerosoUniverse is a licensed practitioner
-of what your name 📛 from First, Middle and Last name should be!
+Definitely, I deserve the very best of both WORLDS.
 
-Why not? I deserve the very best of both WORLDS.
-
-I am a Filipino from NOTHING!
-
-NOW, you know!
-
-Coconut is a giant nut 🥜.
-
-Go to the province and plant Kamote or Kamoteng-Kahoy!
+I am a Filipino! And always proud to one.
 
 Basically, I am so technical. Hence,I am NOT being fooled into believing something
 that is OUT of context to my experiences. Like in Team Experiences.
@@ -53,3 +45,4 @@ Animo LaSalle! 💪💪💪💪🌍
 
 Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰 
 
+Let us sing the "Hallelujah"! 😂
