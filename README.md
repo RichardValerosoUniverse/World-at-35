@@ -25,15 +25,14 @@ I am a Filipino! And always proud to one.
 
 Basically, I am so technically techy with the spirits of all existing branches of sciences and those fields of warship and battles.
 
-Hence,I am NOT being fooled into believing something
-that is OUT of context to my experiences. Like in Team Experiences.
+With all of these, I am still at my greatest sanity and never I was ever fooled into believing something
+that is OUT of contexts with regard to my experiences. Like in Team Experiences in the GitHub Universe.
 
-Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable
-to me!
+Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable to me because I am a Psychiatrist myself, depending on the environment and scenario I am in. I can be professionally be the exact professional that I want to be!
 
-Am I in the United States Of America? The answer is YES, I am at the moment in Washington,DC.
+Am I in the United States Of America? The answer is YES, I am at the moment in Washington, DC.
 
-A lot will happen as I will be travelling in all my Kingdoms in Canada and in the Philippines. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
+A lot of things/stuff will progress and become the reality as I will be travelling in all my Kingdoms in Canada and in the Philippines. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
 
 I am insane to be SANE.
 
