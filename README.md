@@ -51,3 +51,11 @@ Let us sing the "Hallelujah"! 😂
 #Luy-a 🫚🫚🫚
 
 #IkawAnuTripMo? 😁👍
+👁️👀
+👀👁️
+🚨🕯️👍
+🦕🦖
+🔐🔐💪
+
+
+💪👑👑👑♾️
