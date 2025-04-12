@@ -23,7 +23,9 @@ Definitely, I deserve the very best of both WORLDS.
 
 I am a Filipino! And always proud to one.
 
-Basically, I am so technical. Hence,I am NOT being fooled into believing something
+Basically, I am so technically techy with the spirits of all existing branches of sciences and those fields of warship and battles.
+
+Hence,I am NOT being fooled into believing something
 that is OUT of context to my experiences. Like in Team Experiences.
 
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable
