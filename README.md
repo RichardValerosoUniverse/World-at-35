@@ -29,11 +29,13 @@ that is OUT of context to my experiences. Like in Team Experiences.
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable
 to me!
 
-Am I in the Washington State? The answer is Yes. Washington, D.C.
+Am I in the United States Of America? The answer is YES, I am at the moment in Washington,DC.
+
+A lot will happen as I will be travelling in all my Kingdoms in Canada and in the Philippines. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
 
 I am insane to be SANE.
 
-I love 💕 currencies, cryptography and more.
+I love 💕 currencies, gold 🥇 🪙 cryptography and there are a lot more.
 
 Again, it is what it is nevertheless.
 Precisely!
@@ -46,3 +48,6 @@ Animo LaSalle! 💪💪💪💪🌍
 Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰 
 
 Let us sing the "Hallelujah"! 😂
+#Luy-a 🫚🫚🫚
+
+#IkawAnuTripMo? 😁👍
