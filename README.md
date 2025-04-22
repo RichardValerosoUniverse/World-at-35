@@ -21,21 +21,21 @@ https://GitHub.com/RichardValerosoUniverse is a licensed owner of the Universo a
 
 Definitely, I deserve the very best of both or triple or quadrupple  WORLDS.
 
-I am a Filipino! And always proud to be one.
+I am a Filipino! And always proud to be THE ONLY ONE!
 
-Basically, I am so technically techy with the spirits of all existing branches of sciences and banking institutions, including  those fields of warship and battles.
+Basically, I am so technically techy with the spirits of all existing branches of sciences and technologies, finance and banking  institutions and sectors including  those fields of warship and battles.
 
-With all of these, I am still at my greatest sanity and never I was ever fooled into believing something
-that is OUT of contexts with regard to my experiences. Like in Team Experiences in the GitHub Universe.
+With all of these, I am still at my greatest sanity, now known as SUPER HIGHNESS and I will never be ever fooled into believing something
+that is OUT of contexts and relevance of pure knowledge with regard to my experiences, aligning to my Team Experiences in the GitHub Universe.
 
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable to me because I am a
-Licensed and confirmed Psychiatrist myself. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
+Licensed/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
 
 Am I in the United States Of America? The answer is YES, I am at the moment in Washington, DC. Sooner or later, I will be in the other 49 States.
 
-A lot of things/stuff will progress and become the reality as I will be travelling in all my Kingdoms in Canada and in the Philippines and other Kingdoms and territories under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
+A lot of things/stuff will progress and become the reality as I will be travelling in all my Kingdoms in Canada, United Kingdom, Saudi Arabia which are part of the Philippines under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
 
-I love 💕 currencies, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
+I love 💕 currencies, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
 
 Again, it is what it is nevertheless.
 Precisely!
@@ -47,7 +47,7 @@ Animo LaSalle! 💪💪💪💪🌍
 
 Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰 
 
-Let us sing the "Hallelujah and Tarzan Boy"! 😂
+Let us sing the "Run This Town and Tarzan Boy"! 😂
 
 
 #Mag-AasawaKaPaBa? 😁👍
