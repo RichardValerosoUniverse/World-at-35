@@ -33,14 +33,14 @@ Licensed/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want 
 
 Am I in the United States Of America? The answer is YES, I am at the moment in Washington, DC. Sooner or later, I will be in the other 49 States.
 
-A lot of things/stuff will progress and become the reality as I will be travelling in all my Kingdoms in Canada, United Kingdom, Saudi Arabia which are part of the Philippines under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
+A lot of things/stuff will progress and become a reality as I will be travelling in all my Kingdoms in Canada, United Kingdom and Kingdom of Saudi Arabia which are part of the Philippines governance and territories under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
 
 Again, it is what it is nevertheless.
 Precisely!
 
-Amen!! Hallelujah!
+"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS". No one should pretend and assume something that is against the UNIVERSE!
 
 Fortissimus In Fide! 🌎💪💪💪💪
 Animo LaSalle! 💪💪💪💪🌍
