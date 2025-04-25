@@ -32,7 +32,7 @@ that is OUT of contexts and relevance of pure knowledge with regard to my experi
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable to me because I am a
 Licensed/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
 
-Am I in the United States Of America? The answer is YES, I am at the moment in Washington, DC. Sooner or later, I will be in the other 49 States.
+Am I in the United States Of America? The answer is YES, I am at the moment in 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I will be in the other 49 States.
 
 A lot of things/stuff will progress and become a reality as I will be travelling in all my Kingdoms in Canada, United Kingdom and Kingdom of Saudi Arabia, Dubai which are part of the Philippines governance and territories under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
 
