@@ -10,7 +10,7 @@ Building an understanding takes a lot of struggles, sacrifices, confusions,
 and dilemma. A lot of temptations & destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
 greater than what the environment can conceive and attract.
-Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how you perceive life the way it should been applied to/on/in/into something/body...
+Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how the you perceive life the way it should been applied to/on/in/into something/body...
 Amidst all adversities in there and here, concentration to where,what,how to materialize those impossible to possibilities is
 a mastering of bravery and resilience to create what seems to be difficult, yet it is easy since you develop 
 the skillsets as well as mindsets needed to fight in any war you define to be!
@@ -23,7 +23,7 @@ Definitely, I deserve the very best of both or triple or quadruple  WORLDS.
 
 I am a Filipino! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
-Basically, I am so technically techy with the spirits of all existing branches of sciences and technologies, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
+Basically, I am digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
 
 With all of these, I am still at my greatest sanity, now known as SUPER HIGHNESS and I will never be ever fooled into believing something
@@ -55,7 +55,10 @@ Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰
 Let us sing the "Run This Town, Cartoon Heroes and Tarzan Boy"! 😂
 
 
-#Mag-AasawaKaPaBa? 😁👍
+#BetterToBeAlone
+#BestToBeRichness
+#BestToBeSingle
+😁👍
 👁️👀
 👀👁️
 🚨🕯️👍
