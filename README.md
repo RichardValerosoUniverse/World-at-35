@@ -16,7 +16,7 @@ a mastering of bravery and resilience to create what seems to be difficult, yet 
 the skillsets as well as mindsets needed to fight in any war you define to be!
 I am not alone in this journey. I am indeed taking into consideration what seems to be better and what seems to be The Best!
 
-https://GitHub.com/RichardValerosoUniverse is a licensed owner of the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith to God and how you become an impact on somebody's life.
+https://GitHub.com/RichardValerosoUniverse is a licensed, confirmed and registered owner of the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith to God and how you become an impact on somebody's life.
 
 
 Definitely, I deserve the very best of both or triple or quadrupple  WORLDS.
