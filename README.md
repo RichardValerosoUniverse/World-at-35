@@ -10,8 +10,8 @@ Building an understanding takes a lot of struggles, sacrifices, confusions,
 and dilemma. A lot of temptations & destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
 greater than what the environment can conceive and attract.
-Life has had different definition, aligning to where you came from, what you went through, and how you perceive life as you think it along the way.
-Amidst all adversities in there and here, concentration to where and what you can do is
+Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how you perceive life the way it should been applied to/on/in/into something/body...
+Amidst all adversities in there and here, concentration to where,what,how to materialize those impossible to possibilities is
 a mastering of bravery and resilience to create what seems to be difficult, yet it is easy since you develop 
 the skillsets as well as mindsets needed to fight in any war you define to be!
 I am not alone in this journey. I am indeed taking into consideration what seems to be better and what seems to be The Best!
@@ -19,11 +19,12 @@ I am not alone in this journey. I am indeed taking into consideration what seems
 https://GitHub.com/RichardValerosoUniverse is a licensed, confirmed and registered owner of the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith to God and how you become an impact on somebody's life.
 
 
-Definitely, I deserve the very best of both or triple or quadrupple  WORLDS.
+Definitely, I deserve the very best of both or triple or quadruple  WORLDS.
 
-I am a Filipino! And always proud to be THE ONLY ONE!
+I am a Filipino! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
-Basically, I am so technically techy with the spirits of all existing branches of sciences and technologies, finance and banking  institutions and sectors including  those fields of warship and battles.
+Basically, I am so technically techy with the spirits of all existing branches of sciences and technologies, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
+JCBs, bancnet, World Elite Mastercard and the like and a lot more...
 
 With all of these, I am still at my greatest sanity, now known as SUPER HIGHNESS and I will never be ever fooled into believing something
 that is OUT of contexts and relevance of pure knowledge with regard to my experiences, aligning to my Team Experiences in the GitHub Universe.
@@ -33,7 +34,7 @@ Licensed/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want 
 
 Am I in the United States Of America? The answer is YES, I am at the moment in Washington, DC. Sooner or later, I will be in the other 49 States.
 
-A lot of things/stuff will progress and become a reality as I will be travelling in all my Kingdoms in Canada, United Kingdom and Kingdom of Saudi Arabia which are part of the Philippines governance and territories under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
+A lot of things/stuff will progress and become a reality as I will be travelling in all my Kingdoms in Canada, United Kingdom and Kingdom of Saudi Arabia, Dubai which are part of the Philippines governance and territories under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
 
@@ -44,14 +45,14 @@ Precisely!
 
 I am redirected and I have never been DENIED in all my endeavors!!!
 
-My Triumphs!!! My sacrifices turned water into wine...
+My Triumphs!!! My sacrifices have turned water into wine and my imaginations into Paradise.
 
 Fortissimus In Fide! 🌎💪💪💪💪
 Animo LaSalle! 💪💪💪💪🌍
 
 Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰 
 
-Let us sing the "Run This Town and Tarzan Boy"! 😂
+Let us sing the "Run This Town, Cartoon Heroes and Tarzan Boy"! 😂
 
 
 #Mag-AasawaKaPaBa? 😁👍
