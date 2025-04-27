@@ -30,7 +30,7 @@ characteristics above, including participants with disabilities.
 
 ### Reporting Issues
 
-If you experience or witness unacceptable behavior—or have any other concerns—please report it by contacting us via [opensource+codeofconduct@twitter.com](mailto:opensource+codeofconduct@twitter.com) or report to my Kingdom at +63279591111. All reports will be handled with discretion. In your report please include:
+If you experience or witness unacceptable behavior—or have any other concerns—please report it by contacting us via [opensource+codeofconduct@twitter.com](mailto:opensource+codeofconduct@twitter.com) or report to my Kingdom at +63279591111 and/or +639157951638. All reports will be handled with discretion. In your report please include:
 
 - Your contact information.
 - Names (real, nicknames, or pseudonyms) of any individuals involved. If there are additional witnesses, please
@@ -47,6 +47,6 @@ This code of conduct is based on the [Open Code of Conduct](https://github.com/t
 
 We are thankful for their work and all the communities who have paved the way with code of conducts.
 
-I also thank Yours truly GitHub.com/RichardValerosoUniverse for re-claiming the most coveted throne of Kingship 👑. Now, today and FOREVER ♾️...
+I also thank Yours truly https://GitHub.com/RichardValerosoUniverse for re-claiming the most coveted throne of Kingship 👑. Now, today and FOREVER ♾️...
 
 "Compatriots, veritatem meam profero. Sanus mente, hallucinations et delusiones reliqui. Sic est, nihil amplius."
