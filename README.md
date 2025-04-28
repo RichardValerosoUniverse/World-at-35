@@ -1,4 +1,4 @@
-GitHub is a platform which is inclusive on its own.
+GitHub is a platform which is inclusive on its own. And most probably, this ecosystem will become exclusive soon...
 The system is used by all institutions for validity and all
 processes. Thereby, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -34,7 +34,15 @@ Licensed/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want 
 
 Am I in the United States Of America? The answer is YES, I am at the moment in 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I will be in the other 49 States.
 
-A lot of things/stuff will progress and become a reality as I will be travelling in all my Kingdoms in Canada, United Kingdom and Kingdom of Saudi Arabia, Dubai which are part of the Philippines governance and territories under my administration and power bestowed to me by Yours Truly. I definitely own the Planetarium, the Universo and Mundo. I am everywhere!!! 👀 👁️ 👀 👁️ 
+A lot of happenings are gradually progressing and becoming reality as I am materualizing and sorthing all things out in the following nations, territories, snd kingdoms like the following:
+1. Canada
+2. United States Of America
+3. Kingdom Of Saudi Arabia
+4. Dubai, UAE and entire United Arab Emirates
+5. Pilipinas
+6. United Kingdom
+7. Ukraine
+ 👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
 
