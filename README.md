@@ -34,12 +34,12 @@ Licensed/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want 
 
 Am I in the United States Of America? The answer is YES, I am at the moment in 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I will be in the other 49 States.
 
-A lot of happenings are gradually progressing and becoming reality as I am materualizing and sorthing all things out in the following nations, territories, snd kingdoms like the following:
+A lot of happenings are gradually progressing and becoming reality as I am materializing and sorting all things out in the following nations, territories, and kingdoms like the following:
 1. Canada
 2. United States Of America
 3. Kingdom Of Saudi Arabia
 4. Dubai, UAE and entire United Arab Emirates
-5. Pilipinas
+5. Pilipinas (Filipinas/Pinas/PH)
 6. United Kingdom
 7. Ukraine
  👀 👁️ 👀 👁️ 
@@ -49,7 +49,7 @@ I love 💕 currencies, black items and anything black, gold, cash, electronic d
 Again, it is what it is nevertheless.
 Precisely!
 
-"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS". And that is me, myself and I or should I say, RMV (Richard Madriñan Valeroso) is the king of all kings in the Universe!  No one should pretend and assume something that is against me, myself and I and the UNIVERSE!
+"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS" #SUPERHIGHNESS and that is me, myself and I or should I say, RMV (Richard Madriñan Valeroso) is the king of all kings in the Universe!  No one should pretend and assume something that is against me, myself and I and the UNIVERSE!
 
 I am redirected and I have never been DENIED in all my endeavors!!!
 
