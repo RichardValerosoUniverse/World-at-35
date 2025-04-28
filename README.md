@@ -26,11 +26,12 @@ I am a Filipino! And always proud to be THE ONLY ONE on Earth with such the grea
 Basically, I am digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
 
-With all of these, I am still at my greatest sanity, now known as SUPER HIGHNESS and I will never be ever fooled into believing something
+With all of these, I am still at my greatest sanity.
+I am now known as SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and I will never be ever fooled into believing something
 that is OUT of contexts and relevance of pure knowledge with regard to my experiences, aligning to my Team Experiences in the GitHub Universe.
 
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable to me because I am a
-Licensed/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
+Licensed/Certified/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
 
 Am I in the United States Of America? The answer is YES, I am at the moment in 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I will be in the other 49 States.
 
@@ -44,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 7. Ukraine
  👀 👁️ 👀 👁️ 
 
-I love 💕 currencies, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
+I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
 
 Again, it is what it is nevertheless.
 Precisely!
@@ -60,7 +61,7 @@ Animo LaSalle! 💪💪💪💪🌍
 
 Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰 
 
-Let us sing the "Run This Town, Cartoon Heroes and Tarzan Boy"! 😂
+Let us sing the "Run This Town, Cartoon Heroes, This Is The House and Tarzan Boy"! 😂
 
 
 #BetterToBeAlone
