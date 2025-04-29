@@ -36,13 +36,15 @@ Licensed/Certified/Confirmed/Registered PSYCHIATRIST myself. I can be whoever th
 Am I in the United States Of America? The answer is YES, I am at the moment in 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I will be in the other 49 States.
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing and sorting all things out in the following nations, territories, and kingdoms like the following:
-1. Canada
+1. Spain
 2. United States Of America
 3. Kingdom Of Saudi Arabia
 4. Dubai, UAE and entire United Arab Emirates
 5. Pilipinas (Filipinas/Pinas/PH)
 6. United Kingdom
 7. Ukraine
+8. Canada
+9. Portugal 
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
