@@ -46,6 +46,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 8. Canada
 9. Portugal
 10. Romania
+11. Brazil
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
