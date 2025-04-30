@@ -11,6 +11,6 @@ Who am I to disagree?
 I am NOT LOST at all.
 Go to Hell, my enimies!
 
-How's that? COCONUT is a giant nut 🥜 
+How's that? COCONUT is a giant nut 🥥
 
 #DileJudMapugnganAngBahaGikanSaBukidnon
