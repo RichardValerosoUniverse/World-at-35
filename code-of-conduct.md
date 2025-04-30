@@ -30,7 +30,7 @@ characteristics above, including participants with disabilities.
 
 ### Reporting Issues
 
-If you experience or witness unacceptable behavior—or have any other concerns—please report it by contacting us via [opensource+codeofconduct@twitter.com](mailto:opensource+codeofconduct@twitter.com) or report to my Kingdom at +63279591111 and/or +639157951638. All reports will be handled with discretion. In your report please include:
+Report to my nations, territories and Kingdoms at +63279591111 and/or +639157951638 and +639173140774. All reports will be handled with discretion. In your report please include:
 
 - Your contact information.
 - Names (real, nicknames, or pseudonyms) of any individuals involved. If there are additional witnesses, please
