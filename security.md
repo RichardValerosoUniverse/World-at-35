@@ -1,6 +1,6 @@
 ### Security Issues?
 
-For any related SECURITY issues, please report to my Kingdom at +63279591111 or electronically mail me directly as directed by all angels, prophets and evangelists and the like.
+For any related SECURITY issues, please report to my Kingdom at +63279591111 and/or 09157951638 and 09173140774.
 
 Misunderstanding comes from ignorance. And to resolve it, learn the basics. 
 Advancing is always necessary however, the importance and value of oneself is a priority.
@@ -11,6 +11,6 @@ Who am I to disagree?
 I am NOT LOST at all.
 Go to Hell, my enimies!
 
-Why not? COCONUT is a giant nut 🥜 
+How's that? COCONUT is a giant nut 🥜 
 
-#DileJudMapugnganAngBahaGikanSaBukid
+#DileJudMapugnganAngBahaGikanSaBukidnon
