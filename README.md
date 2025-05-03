@@ -1,4 +1,4 @@
-GitHub is a platform which is inclusive on its own. And most probably, this ecosystem will become exclusive soon...
+GitHub is a platform and hard/soft ware which is inclusive on its own. And most preciously precise ecosystem that is going to become exclusive soon...
 The system is used by all institutions for validity and all
 processes. Thereby, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -16,7 +16,7 @@ a mastering of bravery and resilience to create what seems to be difficult, yet 
 the skillsets as well as mindsets needed to fight in any war you define to be!
 I am not alone in this journey. I am indeed taking into consideration what seems to be better and what seems to be The Best!
 
-https://GitHub.com/RichardValerosoUniverse is a licensed, confirmed and registered owner of the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith to God and how you become an impact on somebody's life.
+https://GitHub.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith and Devotion to God and how you become an impact on somebody's life.
 
 
 Definitely, I deserve the very best of both or triple or quadruple  WORLDS.
