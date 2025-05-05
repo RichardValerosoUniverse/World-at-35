@@ -1,6 +1,6 @@
 ### Security Issues?
 
-For any related SECURITY issues, please report to my Kingdom at +63279591111 and/or 09157951638 and 09173140774.
+For any related SECURITY issues, please report to my Kingdoms/Nations and Territories at +63279591111 and/or 09157951638, 09173140774 and 09108174157.
 
 Misunderstanding comes from ignorance. And to resolve it, learn the basics. 
 Advancing is always necessary however, the importance and value of oneself is a priority.
