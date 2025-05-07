@@ -53,6 +53,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 15. China
 16. Taiwan
 17. Pakistan
+18. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
