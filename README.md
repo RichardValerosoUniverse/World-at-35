@@ -44,16 +44,17 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 6. United Kingdom
 7. Ukraine
 8. Canada
-9. Portugal
-10. Romania
-11. Brazil
-12. Indonesia
-13. Vietnam
-14. Malaysia
-15. China
-16. Taiwan
-17. Pakistan
-18. Vatican City
+9. Chile
+10. Portugal
+11. Romania
+12. Brazil
+13. Indonesia
+14. Vietnam
+15. Malaysia
+16. China
+17. Taiwan
+18. Pakistan
+19. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
