@@ -51,10 +51,11 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 13. Indonesia
 14. Vietnam
 15. Malaysia
-16. China
-17. Taiwan
-18. Pakistan
-19. Vatican City
+16. France
+17. China
+18. Taiwan
+19. Pakistan
+20. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
