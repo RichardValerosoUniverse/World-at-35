@@ -75,8 +75,8 @@ Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰
 Let us sing the "Run This Town, Cartoon Heroes, This Is The House and Tarzan Boy"! 😂
 
 
-#BetterToBeAlone
-#BestToBeRichness
+#GoodToBeAlone
+#BettahToBeRichness
 #BestToBeSingle
 😁👍
 👁️👀
