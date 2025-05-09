@@ -1,4 +1,4 @@
-# Code of Conduct version FOREVER was adapted, created and updated by Psychiatrist Richard Madriñan Valeroso,LMT,MD
+# DVO Code of Conduct version FOREVER was adapted, created and updated by Psychiatrist Richard Madriñan Valeroso,LMT,MD
 
 (This Code of Conduct may change without further notices depending on my behaviours)
 
