@@ -37,11 +37,11 @@ Am I in the United States Of America? The answer is YES, I am at the moment in 1
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain
-2. United States Of America
+2. USA
 3. Kingdom Of Saudi Arabia
 4. Dubai, UAE and entire United Arab Emirates
 5. Pilipinas (Filipinas/Pinas/PH)
-6. United Kingdom
+6. UK
 7. Ukraine
 8. Canada
 9. Chile
