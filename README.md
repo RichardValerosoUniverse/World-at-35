@@ -45,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 7. Ukraine
 8. Canada
 9. Chile
-10. Portugal
+10. Indiat
 11. Romania
 12. Brazil
 13. Indonesia
@@ -55,7 +55,8 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 17. China
 18. Taiwan
 19. Pakistan
-20. Vatican City
+20. The Bahamas
+21. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
