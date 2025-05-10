@@ -45,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 7. Ukraine
 8. Canada
 9. Chile
-10. Indiat
+10. Angola
 11. Romania
 12. Brazil
 13. Indonesia
