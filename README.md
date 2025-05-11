@@ -53,7 +53,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 15. Malaysia
 16. France
 17. China
-18. Taiwan
+18. Haiti
 19. Pakistan
 20. The Bahamas
 21. Vatican City
