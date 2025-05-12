@@ -45,22 +45,23 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 7. Ukraine
 8. Canada
 9. Chile
-10. Angola
-11. The Dominican Republic
-12. Brazil
-13. Indonesia
-14. Vietnam
-15. Japan
-16. South Africa
-17. Korea
-18. Malaysia
-19. France
-20. China
-21. Haiti
-22. Norway
-23. The Bahamas
-24. Venezuela
-25. Vatican City
+10. Italy
+11. Angola
+12. The Dominican Republic
+13. Brazil
+14. Indonesia
+15. Vietnam
+16. Japan
+17. South Africa
+18. Korea
+19. Malaysia
+20. France
+21. China
+22. Haiti
+23. Norway
+24. The Bahamas
+25. Venezuela
+26. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
