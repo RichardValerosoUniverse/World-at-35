@@ -59,14 +59,19 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 21. Malaysia
 22. France
 23. China
-24. Thailand
-25. Brunei
-26. Norway
-27. Singapore
-28. Hong Kong SAR (Special Administrative Region)
-29. Switzerland
-30. Venezuela
-31. Vatican City
+24. Democratic Republic of Congo
+25. Mexico
+26. Portugal
+27. Costa Rica
+28. Hungary
+29. Thailand
+30. Brunei
+31. Norway
+32. Singapore
+33. Hong Kong SAR (Special Administrative Region)
+34. Switzerland
+35. Venezuela
+36. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
