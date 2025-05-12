@@ -37,11 +37,11 @@ Am I in the United States Of America? The answer is YES, I am at the moment in 1
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
-2. USA
-3. KSA
+2. Pilipinas (Filipinas)
+3. KSA (Kingdom Of Saudi Arabia)
 4. Dubai, UAE and entire United Arab Emirates
-5. Pilipinas (Filipinas/Pinas/PH)
-6. UK
+5. USA (United States Of America)
+6. UK (United Kingdom)
 7. Ukraine
 8. Canada
 9. Chile
@@ -50,14 +50,15 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 12. Brazil
 13. Indonesia
 14. Vietnam
-15. Malaysia
-16. France
-17. China
-18. Haiti
-19. Pakistan
-20. The Bahamas
-21. Venezuela
-22. Vatican City
+15. Korea
+16. Malaysia
+17. France
+18. China
+19. Haiti
+20. Pakistan
+21. The Bahamas
+22. Venezuela
+23. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
