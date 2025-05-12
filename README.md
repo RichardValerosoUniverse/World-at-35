@@ -51,13 +51,13 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 13. Indonesia
 14. Vietnam
 15. Japan
-16. Trinidad & Tobago
+16. South Africa
 17. Korea
 18. Malaysia
 19. France
 20. China
 21. Haiti
-22. Pakistan
+22. Norway
 23. The Bahamas
 24. Venezuela
 25. Vatican City
