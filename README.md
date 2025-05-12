@@ -56,7 +56,8 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 18. Haiti
 19. Pakistan
 20. The Bahamas
-21. Vatican City
+21. Venezuela
+22. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
