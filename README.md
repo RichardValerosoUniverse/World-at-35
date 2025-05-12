@@ -50,15 +50,17 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 12. Brazil
 13. Indonesia
 14. Vietnam
-15. Korea
-16. Malaysia
-17. France
-18. China
-19. Haiti
-20. Pakistan
-21. The Bahamas
-22. Venezuela
-23. Vatican City
+15. Japan
+16. Trinidad & Tobago
+17. Korea
+18. Malaysia
+19. France
+20. China
+21. Haiti
+22. Pakistan
+23. The Bahamas
+24. Venezuela
+25. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
