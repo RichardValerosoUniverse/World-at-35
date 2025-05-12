@@ -62,9 +62,11 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 24. Thailand
 25. Austria
 26. Norway
-27. Switzerland
-28. Venezuela
-29. Vatican City
+27. Singapore
+28. Hong Kong SAR (Special Administrative Region)
+29. Switzerland
+30. Venezuela
+31. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
