@@ -57,11 +57,12 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 19. Malaysia
 20. France
 21. China
-22. Haiti
-23. Norway
-24. The Bahamas
-25. Venezuela
-26. Vatican City
+22. Thailand
+23. Haiti
+24. Norway
+25. The Bahamas
+26. Venezuela
+27. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
