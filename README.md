@@ -52,7 +52,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 14. The Dominican Republic
 15. Brazil
 16. Indonesia
-17. Vietnam
+17. Netherlands
 18. Japan
 19. South Africa
 20. Korea
