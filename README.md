@@ -70,8 +70,12 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 32. Singapore
 33. Hong Kong SAR (Special Administrative Region)
 34. Switzerland
-35. Venezuela
-36. Vatican City
+35. Israel
+36. Romania
+37. Greece
+38. Timor-Leste
+39. Venezuela
+40. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
