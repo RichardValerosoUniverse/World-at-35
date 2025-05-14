@@ -78,21 +78,23 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 40. Luxembourg
 41. Monaco
 42. Liechtenstein
-43. Eswatini
-44. Lesotho
-45. Tonga
-46. Morocco
-47. Peru
-48. Norway
-49. Singapore
-50. Hong Kong SAR (Special Administrative Region)
-51. Switzerland
-52. Israel
-53. Romania
-54. Greece
-55. Timor-Leste
-56. Republic of the Philippines (Filipinas/Pilipinas)
-57. Vatican City
+43. Kingdom of Bhutan
+44. Kingdom of Eswatini
+45. Kingdom of Lesotho
+46. Kingdom of Tonga
+47. Trinidad & Tobago
+48. Morocco
+49. Peru
+50. Norway
+51. Singapore
+52. Hong Kong SAR (Special Administrative Region)
+53. Switzerland
+54. Israel
+55. Romania
+56. Greece
+57. Timor-Leste
+58. Republic of the Philippines (Filipinas/Pilipinas)
+59. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
