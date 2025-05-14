@@ -37,7 +37,7 @@ Am I in the United States Of America? The answer is YES, I am at the moment in 1
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
-2. Pilipinas (Filipinas)
+2. Venezuela
 3. Germany
 4. KSA (Kingdom Of Saudi Arabia)
 5. Dubai, UAE and entire United Arab Emirates
@@ -75,7 +75,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 37. Romania
 38. Greece
 39. Timor-Leste
-40. Venezuela
+40. Republic of the Philippines (Filipinas/Pilipinas)
 41. Vatican City
  👀 👁️ 👀 👁️ 
 
