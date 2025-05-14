@@ -64,19 +64,26 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 26. Portugal
 27. Costa Rica
 28. Australia
-29. Thailand
-30. Brunei
-31. Peru
-32. Norway
-33. Singapore
-34. Hong Kong SAR (Special Administrative Region)
-35. Switzerland
-36. Israel
-37. Romania
-38. Greece
-39. Timor-Leste
-40. Republic of the Philippines (Filipinas/Pilipinas)
-41. Vatican City
+29. Bahrain
+30. Cambodia
+31. Belgium
+32. Jordan
+33. Oman
+34. Qatar
+35. Kuwait
+36. Thailand
+37. Brunei
+38. Peru
+39. Norway
+40. Singapore
+41. Hong Kong SAR (Special Administrative Region)
+42. Switzerland
+43. Israel
+44. Romania
+45. Greece
+46. Timor-Leste
+47. Republic of the Philippines (Filipinas/Pilipinas)
+48. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
