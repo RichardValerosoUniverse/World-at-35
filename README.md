@@ -19,7 +19,7 @@ I am not alone in this journey. I am indeed taking into consideration what seems
 https://GitHub.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith and Devotion to God and how you become an impact on somebody's life.
 
 
-Definitely, I deserve the very best of both or triple or quadruple  WORLDS.
+Definitely, I deserve the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
 I am a Filipino! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
