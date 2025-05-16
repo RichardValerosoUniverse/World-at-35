@@ -13,4 +13,4 @@ Go to Hell, my enimies!
 
 How's that? COCONUT is a giant nut 🥥
 
-#DileNaGajudMapugnganAngBahaGikanSaKabukiranUgKalasangan🤣
+#DileNaGajudMapugnganAngBahaGikanSaKabitinan🤣
