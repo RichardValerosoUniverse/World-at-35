@@ -116,8 +116,8 @@ I am redirected and I have never been DENIED in all my endeavors!!!
 
 My Triumphs!!! My sacrifices have turned water into wine and my imaginations into Paradise.
 
-Fortissimus In Fide! 🌎💪💪💪💪
-Animo LaSalle! 💪💪💪💪🌍
+Bravissimus in Fide! 🌎💪💪💪💪💪
+Veritas in Caritate! 💪💪💪💪💪🌍
 
 Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰 
 
