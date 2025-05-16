@@ -110,7 +110,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 72. Zambia
 73. Zimbabwe
 74. Timor-Leste
-75. Republic of the Philippines (Filipinas/Pilipinas)
+75. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
 76. Vatican City
  👀 👁️ 👀 👁️ 
 
