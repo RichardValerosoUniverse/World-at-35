@@ -37,74 +37,75 @@ Am I in the United States Of America? The answer is YES, I am at the moment in 1
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
-2. Venezuela
-3. Germany
-4. KSA (Kingdom Of Saudi Arabia)
-5. Dubai, UAE and entire United Arab Emirates
-6. USA (United States Of America)
-7. UK (United Kingdom)
-8. Ukraine
-9. Canada
-10. Chile
-11. Italy
-12. Puerto Rico
-13. El Salvador
-14. The Dominican Republic
-15. Brazil
-16. Indonesia
-17. Netherlands
-18. Japan
-19. South Africa
-20. Korea
-21. Malaysia
-22. France
-23. China
-24. Angola
-25. Vietnam
-26. Cyprus
-27. Democratic Republic of Congo
-28. Mexico
-29. Portugal
-30. Costa Rica
-31. Taiwan
-32. Myanmar
-33. Australia
-34. Bahrain
-35. Cambodia
-36. Belgium
-37. Jordan
-38. Oman
-39. Qatar
-40. Kuwait
-41. Thailand
-42. Brunei
-43. Sweden
-44. Denmark
-45. Luxembourg
-46. Monaco
-47. Liechtenstein
-48. Kingdom of Bhutan
-49. Kingdom of Eswatini
-50. Kingdom of Lesotho
-51. Kingdom of Tonga
-52. Trinidad & Tobago
-53. Austria
-54. Bangladesh
-55. Nepal
-56. Morocco
-57. Peru
-58. Norway
-59. Singapore
-60. Hong Kong SAR (Special Administrative Region)
-61. Switzerland
-62. Israel
-63. Romania
-64. Greece
-65. Zambia
-66. Zimbabwe
-67. Timor-Leste
-68. Republic of the Philippines (Filipinas/Pilipinas)
-69. Vatican City
+2. Germany
+3. Japan
+4. Venezuela
+5. KSA (Kingdom Of Saudi Arabia)
+6. Dubai, UAE and entire United Arab Emirates
+7. USA (United States Of America)
+8. UK (United Kingdom)
+9. Ukraine
+10. Canada
+11. Chile
+12. Italy
+13. Puerto Rico
+14. El Salvador
+15. The Dominican Republic
+16. Brazil
+17. Indonesia
+18. Netherlands
+19. The Bahamas
+20. South Africa
+21. Korea
+22. Malaysia
+23. France
+24. China
+25. Angola
+26. Vietnam
+27. Cyprus
+28. Democratic Republic of Congo
+29. Mexico
+30. Portugal
+31. Costa Rica
+32. Taiwan
+33. Myanmar
+34. Australia
+35. Bahrain
+36. Cambodia
+37. Belgium
+38. Jordan
+39. Oman
+40. Qatar
+41. Kuwait
+42. Thailand
+43. Brunei
+44. Sweden
+45. Denmark
+46. Luxembourg
+47. Monaco
+48. Liechtenstein
+49. Kingdom of Bhutan
+50. Kingdom of Eswatini
+51. Kingdom of Lesotho
+52. Kingdom of Tonga
+53. Trinidad & Tobago
+54. Austria
+55. Bangladesh
+56. Nepal
+57. Morocco
+58. Peru
+59. Norway
+60. Singapore
+61. Hong Kong SAR (Special Administrative Region)
+62. Switzerland
+63. Israel
+64. Romania
+65. Greece
+66. Zambia
+67. Zimbabwe
+68. Timor-Leste
+69. Republic of the Philippines (Filipinas/Pilipinas)
+70. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
