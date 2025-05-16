@@ -81,37 +81,39 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 43. Qatar
 44. Kuwait
 45. Thailand
-46. Brunei
-47. Sweden
-48. Denmark
-49. Luxembourg
-50. Monaco
-51. Liechtenstein
-52. Kingdom of Bhutan
-53. Kingdom of Eswatini
-54. Kingdom of Lesotho
-55. Kingdom of Tonga
-56. Trinidad & Tobago
-57. Austria
-58. Botswana
-59. Bolivia
-60. Belize
-61. Bangladesh
-62. Nepal
-63. Morocco
-64. Peru
-65. Norway
-66. Singapore
-67. Hong Kong SAR (Special Administrative Region)
-68. Switzerland
-69. Israel
-70. Romania
-71. Greece
-72. Zambia
-73. Zimbabwe
-74. Timor-Leste
-75. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
-76. Vatican City
+46. Pakistan
+47. Brunei
+48. Sweden
+49. Denmark
+50. Luxembourg
+51. Monaco
+52. Liechtenstein
+53. Kingdom of Bhutan
+54. Kingdom of Eswatini
+55. Kingdom of Lesotho
+56. Kingdom of Tonga
+57. Trinidad & Tobago
+58. Austria
+59. Botswana
+60. Bolivia
+61. Belize
+62. Bangladesh
+63. Nepal
+64. Morocco
+65. Peru
+66. Norway
+67. Singapore
+68. Hong Kong SAR (Special Administrative Region)
+69. Switzerland
+70. Israel
+71. Panama
+72. Romania
+73. Greece
+74. Zambia
+75. Zimbabwe
+76. Timor-Leste
+77. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
+78. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
