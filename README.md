@@ -1,4 +1,4 @@
-GitHub is a platform and hard/soft ware which is inclusive on its own. And most preciously precise ecosystem that is going to become exclusive soon...
+uGitHub is a platform and hard/soft ware which is inclusive on its own. And most preciously precise ecosystem that is going to become exclusive soon...
 The system is used by all institutions for validity and all
 processes. Thereby, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -77,43 +77,44 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 39. Curacao
 40. Poland
 41. Jordan
-42. Oman
-43. Qatar
-44. Kuwait
-45. Thailand
-46. Pakistan
-47. Brunei
-48. Sweden
-49. Denmark
-50. Luxembourg
-51. Monaco
-52. Liechtenstein
-53. Kingdom of Bhutan
-54. Kingdom of Eswatini
-55. Kingdom of Lesotho
-56. Kingdom of Tonga
-57. Trinidad & Tobago
-58. Austria
-59. Botswana
-60. Bolivia
-61. Belize
-62. Bangladesh
-63. Nepal
-64. Morocco
-65. Peru
-66. Norway
-67. Singapore
-68. Hong Kong SAR (Special Administrative Region)
-69. Switzerland
-70. Israel
-71. Panama
-72. Romania
-73. Greece
-74. Zambia
-75. Zimbabwe
-76. Timor-Leste
-77. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
-78. Vatican City (Officially the State of Vatican City)
+42. Iceland
+43. Oman
+44. Qatar
+45. Kuwait
+46. Thailand
+47. Pakistan
+48. Brunei
+49. Sweden
+50. Denmark
+51. Luxembourg
+52. Monaco
+53. Liechtenstein
+54. Kingdom of Bhutan
+55. Kingdom of Eswatini
+56. Kingdom of Lesotho
+57. Kingdom of Tonga
+58. Trinidad & Tobago
+59. Austria
+60. Botswana
+61. Bolivia
+62. Belize
+63. Bangladesh
+64. Nepal
+65. Morocco
+66. Peru
+67. Norway
+68. Singapore
+69. Hong Kong SAR (Special Administrative Region)
+70. Switzerland
+71. Israel
+72. Panama
+73. Romania
+74. Greece
+75. Zambia
+76. Zimbabwe
+77. Timor-Leste
+78. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
+79. Vatican City (Officially the State of Vatican City)
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
