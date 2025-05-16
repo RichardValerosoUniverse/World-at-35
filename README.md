@@ -100,9 +100,11 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 62. Israel
 63. Romania
 64. Greece
-65. Timor-Leste
-66. Republic of the Philippines (Filipinas/Pilipinas)
-67. Vatican City
+65. Zambia
+66. Zimbabwe
+67. Timor-Leste
+68. Republic of the Philippines (Filipinas/Pilipinas)
+69. Vatican City
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
