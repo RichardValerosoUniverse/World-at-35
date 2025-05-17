@@ -103,18 +103,21 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 65. Morocco
 66. Peru
 67. Norway
-68. Singapore
-69. Hong Kong SAR (Special Administrative Region)
-70. Switzerland
-71. Israel
-72. Panama
-73. Romania
-74. Greece
-75. Zambia
-76. Zimbabwe
-77. Timor-Leste
-78. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
-79. Vatican City (Officially the State of Vatican City)
+68. Barbados
+69. Singapore
+70. Hong Kong SAR (Special Administrative Region)
+71. Switzerland
+72. Israel
+73. Haiti
+74. Dominica
+75. Panama
+76. Romania
+77. Greece
+78. Zambia
+79. Zimbabwe
+80. Timor-Leste
+81. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
+82. Vatican City (Officially the State of Vatican City)
  👀 👁️ 👀 👁️ 
 
 I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
