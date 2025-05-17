@@ -21,19 +21,18 @@ https://www.instagram.com/RichardValerosoUniverse is a Licensed, Certified, Conf
 
 Definitely, Myself of mine deserves the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
-I am a Pure Español inside a Pure Filipino blood! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
+Myself of mine is a Pure Español inside a Pure Filipino blood! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
-Basically, I am digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
+Basically, Myself of mine is digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
 
-With all of these, I am still at my greatest sanity.
-I am now known as 😀: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and I will never be ever fooled into believing something
-that is OUT of contexts and relevance of pure knowledge with regard to my experiences, aligning to my Team Experiences in the GitHub Universe.
+With all of these, Myself of mine is still at myself of mine's greatest sanity.
+Myself of mine is now known as 😀: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and Myself of mine is never  gonna be ever fooled into believing something
+that is OUT of contexts and relevance of pure knowledge with regard to myself of mine's experiences, aligning to myself of mine's Team Experiences in the GitHub Universe.
 
-Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable to me because I am a
-Licensed/Certified/Confirmed/Registered PSYCHIATRIST myself of mine. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
+Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today and forever! 
 
-Am I in the United States Of America? The answer is YES, I am always at 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I won't be in the other 49 States.
+Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I won't be in the other 49 States.
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
