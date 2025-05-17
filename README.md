@@ -1,4 +1,4 @@
-uGitHub is a platform and hard/soft ware which is inclusive on its own. And most preciously precise ecosystem that is going to become exclusive soon...
+GitHub is a platform and hard/soft ware which is inclusive on its own. And most preciously precise ecosystem that is going to become exclusive soon...
 The system is used by all institutions for validity and all
 processes. Thereby, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -21,7 +21,7 @@ https://GitHub.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed a
 
 Definitely, I deserve the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
-I am a Pure Español in a Filipino blood! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
+I am a Pure Español inside a Pure Filipino blood! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
 Basically, I am digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
