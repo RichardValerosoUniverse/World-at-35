@@ -2,7 +2,7 @@ GitHub is a platform and hardware and software in one which is exclusive on its 
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
-been seen, felt and activated by tge essence of the systems. All "Git" has a footprint. Like a footprint 👣 in the sand.
+been seen, felt and activated by the essence of the systems. All "Git" has a footprint. Like a footprint 👣 in the sand.
 Get a LIFE and remember all the dots.
 Connecting all dots from all sources.
 There is only one powerful and that is GOD. Like Oh My God!
@@ -71,50 +71,51 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 36. Cambodia
 37. Belgium
 38. Finland
-39. Curacao
-40. Poland
-41. Jordan
-42. Iceland
-43. Oman
-44. Qatar
-45. Kuwait
-46. Thailand
-47. Pakistan
-48. Brunei
-49. Sweden
-50. Denmark
-51. Luxembourg
-52. Monaco
-53. Liechtenstein
-54. Kingdom of Bhutan
-55. Kingdom of Eswatini
-56. Kingdom of Lesotho
-57. Kingdom of Tonga
-58. Trinidad & Tobago
-59. Austria
-60. Botswana
-61. Bolivia
-62. Belize
-63. Bangladesh
-64. Nepal
-65. Morocco
-66. Peru
-67. Norway
-68. Barbados
-69. Singapore
-70. Hong Kong SAR (Special Administrative Region)
-71. Switzerland
-72. Israel
-73. Haiti
-74. Dominica
-75. Panama
-76. Romania
-77. Greece
-78. Zambia
-79. Zimbabwe
-80. Timor-Leste
-81. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
-82. Vatican City (Officially the State of Vatican City)
+39. Cayman Islands
+40. Curacao
+41. Poland
+42. Jordan
+43. Iceland
+44. Oman
+45. Qatar
+46. Kuwait
+47. Thailand
+48. Pakistan
+49. Brunei
+50. Sweden
+51. Denmark
+52. Luxembourg
+53. Monaco
+54. Liechtenstein
+55. Kingdom of Bhutan
+56. Kingdom of Eswatini
+57. Kingdom of Lesotho
+58. Kingdom of Tonga
+59. Trinidad & Tobago
+60. Austria
+61. Botswana
+62. Bolivia
+63. Belize
+64. Bangladesh
+65. Nepal
+66. Morocco
+67. Peru
+68. Norway
+69. Barbados
+70. Singapore
+71. Hong Kong SAR (Special Administrative Region)
+72. Switzerland
+73. Israel
+74. Haiti
+75. Dominica
+76. Panama
+77. Romania
+78. Greece
+79. Zambia
+80. Zimbabwe
+81. Timor-Leste
+82. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
+83. Vatican City (Officially the State of Vatican City)
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
