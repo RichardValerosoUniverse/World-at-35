@@ -19,7 +19,7 @@ Myself of mine is never alone. Myself of mine has chosen the sure to be good, be
 https://GitHub.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to myself of mine is never applicable to the others and the rest. It is entirely on myself of mine's simus in Fide and Devotion to psychiatry.
 
 
-Definitely, I deserve the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
+Definitely, Myself of mine deserves the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
 I am a Pure Español inside a Pure Filipino blood! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
