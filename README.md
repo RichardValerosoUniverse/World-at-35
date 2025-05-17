@@ -125,7 +125,7 @@ I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and a
 Again, it is what it is nevertheless.
 Precisely!
 
-"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS" #SUPERHIGHNESS and that is me, myself and I or should I say, RMV (Richard Madriñan Valeroso) is the king of all kings in the Universe!  No one should pretend and assume something that is against myself of mine, myself and I and the UNIVERSE!
+"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS" #SUPERHIGHNESS and that is myself of mine, Psychiatrist RMV (Richard Madriñan Valeroso,LMT,MD) is the king of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
 
 I am redirected and I have never been DENIED in all my endeavors!!!
 
