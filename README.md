@@ -16,7 +16,7 @@ a mastering of bravery and resilience to create what seems to be difficult, yet 
 the skillsets as well as mindsets needed to fight in any war you define to be!
 Myself of mine is never alone. Myself of mine has chosen the sure to be good, bettah and best.
 
-https://GitHub.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to me could have been not applicable to others. It depends entirely on your Faith and Devotion to God and how you become an impact on somebody's life.
+https://GitHub.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo, regarding to what should have been your names to be like from your First, Middle and Surname. What is applicable to myself of mine is never applicable to the others and the rest. It is entirely on myself of mine's simus in Fide and Devotion to psychiatry.
 
 
 Definitely, I deserve the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
