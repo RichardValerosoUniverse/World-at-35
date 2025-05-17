@@ -1,15 +1,15 @@
 GitHub is a platform and hardware and software in one which is exclusive on its own by default. 🤣
 The system is used by all institutions for validity and all
-processes. Thereby, all fraudulent activities can be monitored.
+processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
-been recorded. All "Git" has a footprint. Like a footprint 👣 in the sand.
+been seen, felt and activated by tge essence of the systems. All "Git" has a footprint. Like a footprint 👣 in the sand.
 Get a LIFE and remember all the dots.
 Connecting all dots from all sources.
 There is only one powerful and that is GOD. Like Oh My God!
 Building an understanding takes a lot of struggles, sacrifices, confusions,
 and dilemma. A lot of temptations & destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
-greater than what the environment can conceive and attract.
+greater than what the environment can feel and attract.
 Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how you perceived life the way it should been applied into something.
 Amidst all adversities in there and here, concentration to where,what,how to materialize those impossibility to possibility is putting into practice each second of the whole time towards bravery and resilience, creating what seems to be difficult to easy ones, valuing the skillsets as well as mindsets needed to fight in any universal wars Myself of mine is defining to be!
 Myself of mine is never alone. Myself of mine has chosen the sureness to be good, bettah and best.
@@ -19,7 +19,7 @@ https://www.instagram.com/RichardValerosoUniverse is a Licensed, Certified, Conf
 
 Definitely, Myself of mine deserves the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
-Myself of mine is a Pure Español inside a Pure Filipino blood! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
+Myself of mine is a Pure Español inside a Pure Filipino blood without endings! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
 Basically, Myself of mine is digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
