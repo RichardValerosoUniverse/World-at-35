@@ -48,6 +48,6 @@ Anyone asked to stop unacceptable behavior is expected to comply immediately. If
 This code of conduct is based on the the moods of Yours Truly, One and Only and Chosen One
 We are thankful for their work and all the communities who have paved the way with code of conducts.
 
-I also thank Yours truly https://GitHub.com/RichardValerosoUniverse for re-claiming the most coveted throne of Kingship 👑. Now, today and FOREVER ♾️...
+I also thank Yours truly https://www.instagram.com/RichardValerosoUniverse for re-claiming the most coveted throne of Kingship 👑. Now, today and FOREVER ♾️...
 
 "Compatriots, veritatem meam profero. Sanus mente, hallucinations et delusiones reliqui. Sic est, nihil amplius."
