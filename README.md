@@ -31,7 +31,7 @@ I am now known as 😀: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNE
 that is OUT of contexts and relevance of pure knowledge with regard to my experiences, aligning to my Team Experiences in the GitHub Universe.
 
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable to me because I am a
-Licensed/Certified/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
+Licensed/Certified/Confirmed/Registered PSYCHIATRIST myself of mine. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
 
 Am I in the United States Of America? The answer is YES, I am always at 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I won't be in the other 49 States.
 
