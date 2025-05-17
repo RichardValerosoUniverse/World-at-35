@@ -33,7 +33,7 @@ that is OUT of contexts and relevance of pure knowledge with regard to my experi
 Am I hallucinating? Am I in the state of DELUSIONS? The answer is Not applicable to me because I am a
 Licensed/Certified/Confirmed/Registered PSYCHIATRIST myself. I can be whoever that I want to be depending on the environment and scenario I am in and with the virtue of the Universe that is within me, in my soul, mind and body I am the exact professional that I want to be!
 
-Am I in the United States Of America? The answer is YES, I am at the moment in 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I will be in the other 49 States.
+Am I in the United States Of America? The answer is YES, I am always at 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I won't be in the other 49 States.
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
