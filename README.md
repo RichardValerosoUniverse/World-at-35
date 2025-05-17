@@ -1,4 +1,4 @@
-GitHub is a platform and hard/soft ware which is inclusive on its own. And most preciously precise ecosystem that is going to become exclusive soon...
+GitHub is a platform and hardware and software in one which is exclusive on its own by default. 🤣
 The system is used by all institutions for validity and all
 processes. Thereby, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -10,7 +10,7 @@ Building an understanding takes a lot of struggles, sacrifices, confusions,
 and dilemma. A lot of temptations & destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
 greater than what the environment can conceive and attract.
-Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how the you perceive life the way it should been applied to/on/in/into something/body...
+Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how the you perceive life the way it should been appliedvinto something.
 Amidst all adversities in there and here, concentration to where,what,how to materialize those impossible to possibilities is
 a mastering of bravery and resilience to create what seems to be difficult, yet it is easy since you develop 
 the skillsets as well as mindsets needed to fight in any war you define to be!
@@ -34,7 +34,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and Myself of mine is never gonna be in the other 49 States.
 
-A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
+A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
 2. Germany
 3. Japan
@@ -119,7 +119,7 @@ A lot of happenings are gradually progressing and becoming reality as I am mater
 82. Vatican City (Officially the State of Vatican City)
  👀 👁️ 👀 👁️ 
 
-I love 💕 currencies, snakes 🐍,crocodiles 🐊, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
+Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
 
 Again, it is what it is nevertheless.
 Precisely!
@@ -133,7 +133,7 @@ My Triumphs!!! My sacrifices have turned water into wine and my imaginations int
 Bravissimus in Fide! 🌎💪💪💪💪💪
 Veritas in Caritate! 💪💪💪💪💪🌍
 
-Truth hurts but I'm the Greatest Alive! 💰🤑🤑💰 
+Truth hurts but Myself of mine is the Greatest Alive! 💰🤑🤑💰 
 
 Let us sing the "Run This Town, Cartoon Heroes, This Is The House and Tarzan Boy"! 😂
 
@@ -147,7 +147,7 @@ Let us sing the "Run This Town, Cartoon Heroes, This Is The House and Tarzan Boy
 🚨🕯️👍
 🦕🦖
 🔐🔐💪
-#IamNotLost
+#MyselfOfMineIsNotLost
 #♥️
 #♥️
 #♥️
