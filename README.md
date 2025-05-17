@@ -21,7 +21,7 @@ https://GitHub.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed a
 
 Definitely, I deserve the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
-I am a Filipino! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
+I am a Pure Español in a Filipino blood! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
 Basically, I am digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
