@@ -10,11 +10,9 @@ Building an understanding takes a lot of struggles, sacrifices, confusions,
 and dilemma. A lot of temptations & destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
 greater than what the environment can conceive and attract.
-Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how the you perceive life the way it should been appliedvinto something.
-Amidst all adversities in there and here, concentration to where,what,how to materialize those impossible to possibilities is
-a mastering of bravery and resilience to create what seems to be difficult, yet it is easy since you develop 
-the skillsets as well as mindsets needed to fight in any war you define to be!
-Myself of mine is never alone. Myself of mine has chosen the sure to be good, bettah and best.
+Life has had different definitions, aligning to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how you perceived life the way it should been applied into something.
+Amidst all adversities in there and here, concentration to where,what,how to materialize those impossibility to possibility is putting into practice each second of the whole time towards bravery and resilience, creating what seems to be difficult to easy ones, valuing the skillsets as well as mindsets needed to fight in any universal wars Myself of mine is defining to be!
+Myself of mine is never alone. Myself of mine has chosen the sureness to be good, bettah and best.
 
 https://www.instagram.com/RichardValerosoUniverse is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo. Myself of mine has completely signified and verified Myself of mine's first, middle and last name. What is applicable to myself of mine is never applicable to the others and the rest. It is entirely on myself of mine's simus in Fide and Devotion to psychiatry.
 
