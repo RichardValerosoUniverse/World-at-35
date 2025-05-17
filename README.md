@@ -32,7 +32,7 @@ that is OUT of contexts and relevance of pure knowledge with regard to myself of
 
 Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today and forever! 
 
-Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500. Sooner or later, I won't be in the other 49 States.
+Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and Myself of mine is never gonna be in the other 49 States.
 
 A lot of happenings are gradually progressing and becoming reality as I am materializing my Virtual Private Networks and I am sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
