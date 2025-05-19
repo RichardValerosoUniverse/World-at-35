@@ -34,7 +34,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (España)
-2. Germany
+2. Temor-Leste
 3. Japan
 4. Venezuela
 5. KSA (Kingdom Of Saudi Arabia)
@@ -120,7 +120,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 85. Greece
 86. Zambia
 87. Zimbabwe
-88. Timor-Leste
+88. Germanian
 89. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
 90. The State of Vatican City 
  👀 👁️ 👀 👁️ 
