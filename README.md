@@ -34,13 +34,13 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain (Spanish)
-2. Temor-Leste
+2. Leste-Temor
 3. Japan
 4. Venezuela
-5. KSA (Kingdom Of Saudi Arabia)
-6. Dubai, UAE and entire United Arab Emirates
-7. USA (United States Of America)
-8. UK (United Kingdom)
+5. KS
+6. Duba
+7. US
+8. UK 
 9. Ukraine
 10. Canada
 11. Chile
@@ -112,7 +112,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 77. Turkey
 78. Poland
 79. Bulgaria
-80. The Kingdom of Metropolitan Davao Region
+80. The Super Kingdom of Metropolitan Davao Region
 81. Haiti
 82. Dominica
 83. Panama
