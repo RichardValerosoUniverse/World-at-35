@@ -33,7 +33,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and Myself of mine is never gonna be in the other 49 States.
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
-1. Spain (España)
+1. Spain (Spanish)
 2. Temor-Leste
 3. Japan
 4. Venezuela
@@ -121,7 +121,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 86. Zambia
 87. Zimbabwe
 88. Germanian
-89. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
+89. Republic of the Philippines (Filipino)
 90. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
