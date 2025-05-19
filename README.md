@@ -45,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 10. Canada
 11. Chile
 12. Italy
-13. Puerto Rico
+13. Puerto Erica
 14. El Salvador
 15. The Dominican Republic
 16. Brazil
@@ -63,7 +63,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 28. Democratic Republic of Congo
 29. Mexico
 30. Portugal
-31. Costa Rica
+31. Costa Erica
 32. Taiwan
 33. Myanmar
 34. Australia
@@ -71,7 +71,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 36. Cambodia
 37. Belgium
 38. Finland
-39. Cayman Islands
+39. Cayman Island
 40. Curacao
 41. Poland
 42. Jordan
@@ -91,7 +91,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 56. Eswatini
 57. Lesotho
 58. Tonga
-59. Trinidad & Tobago
+59. Trinidad
 60. Austria
 61. Botswana
 62. Bolivia
