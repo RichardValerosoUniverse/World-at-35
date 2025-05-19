@@ -87,10 +87,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 52. Luxembourg
 53. Monaco
 54. Liechtenstein
-55. Kingdom of Bhutan
-56. Kingdom of Eswatini
-57. Kingdom of Lesotho
-58. Kingdom of Tonga
+55. Bhutan
+56. Eswatini
+57. Lesotho
+58. Tonga
 59. Trinidad & Tobago
 60. Austria
 61. Botswana
@@ -112,7 +112,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 77. Turkey
 78. Poland
 79. Bulgaria
-80. The Kingdom of Metropolitan Davao
+80. The Kingdom of Metropolitan Davao Region
 81. Haiti
 82. Dominica
 83. Panama
