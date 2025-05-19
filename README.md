@@ -49,7 +49,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 14. El Salvador
 15. The Dominican Republic
 16. Brazil
-17. Indonesia
+17. Zimbabwe
 18. Netherlands
 19. The Bahamas
 20. South Africa
@@ -119,7 +119,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 84. Romania
 85. Greece
 86. Zambia
-87. Zimbabwe
+87. Indonesia
 88. Germanian
 89. Republic of the Philippines (Filipino)
 90. The State of Vatican City 
