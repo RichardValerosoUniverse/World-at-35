@@ -122,7 +122,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 87. Zimbabwe
 88. Timor-Leste
 89. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
-90. Vatican City (Officially the State of Vatican City)
+90. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
