@@ -120,7 +120,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 85. Greece
 86. Zambia
 87. Indonesia
-88. Germanian
+88. Germanian Killah
 89. Republic of the Philippines (Filipino)
 90. The State of Vatican City 
  👀 👁️ 👀 👁️ 
