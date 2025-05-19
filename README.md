@@ -103,7 +103,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 68. Norway
 69. Barbados
 70. Singapore
-71. Hong Kong SAR (Special Administrative Region)
+71. Hong Kong Special Administrative Region
 72. Switzerland
 73. Israel
 74. Jamaica
