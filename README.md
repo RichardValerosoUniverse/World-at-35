@@ -109,18 +109,20 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 74. Jamaica
 75. Honduras
 76. Cuba
-77. Poland
-78. Bulgaria
-79. Haiti
-80. Dominica
-81. Panama
-82. Romania
-83. Greece
-84. Zambia
-85. Zimbabwe
-86. Timor-Leste
-87. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
-88. Vatican City (Officially the State of Vatican City)
+77. Turkey
+78. Poland
+79. Bulgaria
+80. The Kingdom of Metropolitan Davao
+81. Haiti
+82. Dominica
+83. Panama
+84. Romania
+85. Greece
+86. Zambia
+87. Zimbabwe
+88. Timor-Leste
+89. Republic of the Philippines (Filipinas/Pilipinas/Pinas/PH)
+90. Vatican City (Officially the State of Vatican City)
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
