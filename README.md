@@ -107,7 +107,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 74. Swiss Boy 
 75. Latest Herusalem
 76. Jamaicans
-77. Honda
+77. Mandaluyong Loob
 78. Republic of Cubao
 79. Turkeyins
 80. Mongolians
@@ -115,10 +115,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 82. ® Davao Supreme Kingdom
 83. Haitinians
 84. Dominicans
-85. Panas
+85. Panas Heavens
 86. Romanians
 87. Gracelending
-88. Vians
+88. Sud-an
 89. Indonesians
 90. Killah Republicans
 91. Dabaw (Filipino)
