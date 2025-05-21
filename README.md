@@ -34,54 +34,54 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. España (Spanish)
-2. Timoy
-3. Japanacan
-4. Venezuelan
-5. Saudia Republic
+2. TJ
+3. Japanacans
+4. Venezuelans
+5. Saudia Republicans
 6. Duvah
-7. The Washington,DC
+7. The Washington DC
 8. United F
 9. Ukraine
 10. The Canadians
-11. Chile
-12. Italianni
+11. Chilians
+12. Italiannis
 13. Puerta Er
 14. El Salvage
 15. Dominique
-16. Brazila
-17. Zimbab
-18. Nether
-19. The Bahamas
-20. South Africa
-21. Korean
-22. Malaysia
-23. France
-24. Chinak
-25. Angola
-26. Vietnam
+16. Brave
+17. Zimbabus
+18. Netherlending
+19. Baja
+20. Africans
+21. Koreans
+22. Malaysians
+23. Francisco
+24. Tyanak
+25. Angolians
+26. Veterinarians
 27. Cyprose
 28. Congo
 29. Mexiko
-30. Portugali
+30. Porgatoryo
 31. Costa Er
 32. Tai
-33. Myan
-34. Australia
-35. Bahrain
-36. Cambodia
-37. Belgium
+33. Myans
+34. Australians
+35. Bartolina
+36. Cambodians
+37. Bel-air
 38. Fin
-39. Cayman 
+39. Caymen 
 40. Curacaw
 41. Pola
-42. Jord
+42. Jorgians
 43. Icela
-44. Oman
+44. Omen
 45. Qatari
-46. Kuwaiti
+46. Taxition Identifation ID
 47. Thai
 49. Micronesians
-50. Brunei
+50. Brunay
 51. Swedish
 53. Den
 54. Luxem
@@ -91,37 +91,37 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 58. Eswatinin
 59. Lesotho
 60. Tonvah
-61. Trininians
+61. Trinitians
 62. Austrians
-63. Botswanak
+63. Tyanak Ng Pulis
 64. Bolivians
-65. Belize
-66. Bangladish
+65. Belizians
+66. Baklish Prison Cells
 67. Nepal
 68. Moroccans
 69. Per
-70. Norway
-71. Barbados
-72. Singapoor
-73. Hong Kong Specialists
+70. No Ways
+71. Mabdos
+72. Pobre Uyamot
+73. DVO Psychiatrists
 74. Swiss Boy 
-75. Israel
-76. Jamaican
-77. Honduras
-78. Cubans
+75. Latest Herusalem
+76. Jamaicans
+77. Honda
+78. Republic of Cubao
 79. Turkeyins
-80. Pola
+80. Mongolians
 81. Bulgarian
-82. RDSK
+82. ® Davao Supreme Kingdom
 83. Haitinians
 84. Dominicans
 85. Panas
 86. Romanians
 87. Gracelending
-88. Zambians
+88. Vians
 89. Indonesians
-90. German Killah
-91. Philippines Republic (Filipino)
+90. Killah Republicans
+91. Philippines Dabaw Republic (Filipino)
 92. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
