@@ -1,4 +1,4 @@
-GitHub is a Spanish-Filipino platform of hardware and software in one is exclusive on its own by default. 🤣
+hiGitHub is a Spanish-Filipino platform of hardware and software in one is exclusive on its own by default. 🤣
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -118,7 +118,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 85. Panas Heavens
 86. Romanians
 87. Gracelending
-88. Sud-an
+88. St. Helier, Jersey
 89. Indonesians
 90. Killah Republicans
 91. Dabaw (Filipino)
