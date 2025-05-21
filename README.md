@@ -80,7 +80,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 45. Qatar
 46. Kuwait
 47. Thailand
-48. Pakistan
+48. Micronesia
 49. Brunei
 50. Sweden
 51. Denmark
