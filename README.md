@@ -72,7 +72,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 37. Bel-air
 38. Fin
 39. Caymen 
-40. Curacaw
+40. Carabao Greenland Grass
 41. Pola
 42. Jorgians
 43. Icela
@@ -109,7 +109,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 76. Jamaicans
 77. Mandaluyong Loob
 78. Republic of Cubao
-79. Turkeyins
+79. Bao
 80. Mongolians
 81. Tolos
 82. ® Davao Supreme Kingdom
