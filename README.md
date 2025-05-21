@@ -33,96 +33,96 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and Myself of mine is never gonna be in the other 49 States.
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
-1. Spain (Spanish)
-2. Leste-Temor
-3. Japan
-4. Venezuela
-5. KS
-6. Duba
-7. US
-8. UK 
+1. España (Spanish)
+2. Timoy
+3. Japanacan
+4. Venezuelan
+5. Saudia Republic
+6. Duvah
+7. The Washington,DC
+8. United F
 9. Ukraine
-10. Canada
+10. The Canadians
 11. Chile
-12. Italy
-13. Puerto Erica
-14. El Salvador
-15. The Dominican Republic
-16. Brazil
-17. Zimbabwe
-18. Netherlands
+12. Italianni
+13. Puerta Er
+14. El Salvage
+15. Dominique
+16. Brazila
+17. Zimbab
+18. Nether
 19. The Bahamas
 20. South Africa
-21. Korea
+21. Korean
 22. Malaysia
 23. France
-24. China
+24. Chinak
 25. Angola
 26. Vietnam
-27. Cyprus
-28. Democratic Republic of Congo
-29. Mexico
-30. Portugal
-31. Costa Erica
-32. Taiwan
-33. Myanmar
+27. Cyprose
+28. Congo
+29. Mexiko
+30. Portugali
+31. Costa Er
+32. Tai
+33. Myan
 34. Australia
 35. Bahrain
 36. Cambodia
 37. Belgium
-38. Finland
-39. Cayman Island
-40. Curacao
-41. Poland
-42. Jordan
-43. Iceland
+38. Fin
+39. Cayman 
+40. Curacaw
+41. Pola
+42. Jord
+43. Icela
 44. Oman
-45. Qatar
-46. Kuwait
-47. Thailand
-48. Micronesia
-49. Brunei
-50. Sweden
-51. Denmark
-52. Luxembourg
-53. Monaco
-54. Liechtenstein
-55. Bhutan
-56. Eswatini
-57. Lesotho
-58. Tonga
-59. Trinidad
-60. Austria
-61. Botswana
-62. Bolivia
-63. Belize
-64. Bangladesh
-65. Nepal
-66. Morocco
-67. Peru
-68. Norway
-69. Barbados
-70. Singapore
-71. Hong Kong Special Administrative Region
-72. Switzerland
-73. Israel
-74. Jamaica
-75. Honduras
-76. Cuba
-77. Turkey
-78. Poland
-79. Bulgaria
-80. RDSK
-81. Haiti
-82. Dominica
-83. Panama
-84. Romania
-85. Greece
-86. Zambia
-87. Indonesia
-88. Germanian Killah
-89. Republic of the Philippines (Filipino)
-90. The State of Vatican City 
+45. Qatari
+46. Kuwaiti
+47. Thai
+49. Micronesians
+50. Brunei
+51. Swedish
+53. Den
+54. Luxem
+55. Monako
+56. Liechtensteinn
+57. Bhuvah
+58. Eswatinin
+59. Lesotho
+60. Tonvah
+61. Trininians
+62. Austrians
+63. Botswanak
+64. Bolivians
+65. Belize
+66. Bangladish
+67. Nepal
+68. Moroccans
+69. Per
+70. Norway
+71. Barbados
+72. Singapoor
+73. Hong Kong Special
+74. Swiss Boy 
+75. Israel
+76. Jamaican
+77. Honduras
+78. Cubans
+79. Turkeyins
+80. Pola
+81. Bulgarian
+82. RDSK
+83. Haitinians
+84. Dominicans
+85. Panas
+86. Romanians
+87. Gracelending
+88. Zambians
+89. Indonesians
+90. German Killah
+91. Philippines Republic (Filipino)
+92. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
