@@ -78,7 +78,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 43. Icela
 44. Omen
 45. Qatari
-46. Taxition Identifation ID
+46. Bureau of Internal Revenue Philippines 
 47. Thai
 49. Micronesians
 50. Brunay
@@ -121,7 +121,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 88. Vians
 89. Indonesians
 90. Killah Republicans
-91. Philippines Dabaw Republic (Filipino)
+91. Dabaw (Filipino)
 92. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
