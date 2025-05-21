@@ -130,14 +130,14 @@ Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, android
 Again, it is what it is nevertheless.
 Precisely!
 
-"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS" #SUPERHIGHNESS and that is myself of mine, Psychiatrist RMV (Richard Madriñan Valeroso,LMT,MD) is the king of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
+There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS" #SUPERHIGHNESS and that is myself of mine, Psychiatrist RMV (Richard Madriñan Valeroso,LMT,MD) is the king of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
 
 I am redirected and I have never been DENIED in all my endeavors!!!
 
 My Triumphs!!! My sacrifices have turned water into wine and my imaginations into Paradise.
 
-Bravissimus in Fide! 🌎💪💪💪💪💪
-Veritas in Caritate! 💪💪💪💪💪🌍
+"Bravissimus" 🌎💪💪💪💪💪
+"Veritas" 💪💪💪💪💪🌍
 
 Truth hurts but Myself of mine is the Greatest Alive! 💰🤑🤑💰 
 
