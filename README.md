@@ -1,4 +1,4 @@
-hiGitHub is a Spanish-Filipino platform of hardware and software in one is exclusive on its own by default. 🤣
+GITHUB thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is a Spanish-Tagalog platform of hardware and software in one is exclusive on its own by default. 🤣
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
