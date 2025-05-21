@@ -19,7 +19,7 @@ https://www.instagram.com/RichardValerosoUniverse is a Licensed, Certified, Conf
 
 Definitely, Myself of mine deserves the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
-Myself of mine is a Pure Español inside a Pure Filipino blood without endings! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
+Myself of mine is a Pure Spanish-speaking individual inside and outside a Pure Tagalog-speaking bloodline without endings! And always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
 Basically, Myself of mine is digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
