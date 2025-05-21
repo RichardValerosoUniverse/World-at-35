@@ -112,7 +112,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 77. Turkey
 78. Poland
 79. Bulgaria
-80. The Super Kingdom of Metropolitan Davao Region
+80. RDSK
 81. Haiti
 82. Dominica
 83. Panama
