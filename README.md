@@ -138,7 +138,7 @@ My Triumphs!!! My sacrifices have turned water into wine and my imaginations int
 
 "Bravissimus"
 "Veritas"
-Truth hurts but Myself of mine is the Greatest Killah! 💰🤑🤑💰 
+Truth hurts but Myself of mine is the Greatest Killah! 
 
 Let us sing the "Run This Town, Cartoon Heroes, This Is The House and Tarzan Boy"! 😂
 
