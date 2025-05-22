@@ -40,7 +40,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 5. Saudia Republicans
 6. Duvah
 7. The Washington DC
-8. F by W. Tolentino
+8. F thru W
 9. Ukraine
 10. The Canadians
 11. Chilians
