@@ -35,14 +35,14 @@ Myself of mine is living at the moment in United States Of America all the time 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. España (Spanish)
 2. TJ
-3. Japanacans
+3. Japanacanadians
 4. Venezuelans
 5. Saudia Republicans
 6. Duvah
 7. The Washington DC
 8. F thru W
 9. Ukraine
-10. The Canadians
+10. BoysTown designed by ChinaTown
 11. Chilians
 12. Italiannis
 13. Perta Vah
