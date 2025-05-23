@@ -45,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 10. The Canadians
 11. Chilians
 12. Italiannis
-13. Puerta Er
+13. Perta Vah
 14. El Salvage
 15. Dominique
 16. Brave
@@ -97,30 +97,30 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 64. Bolivians
 65. Belizians
 66. Baklish Prison Cells
-67. Nepal
-68. Moroccans
-69. Per
-70. No Ways
+67. Kapalmukz
+68. Kikiyo
+69. Ferson
+70. No Wati
 71. Mabdos
 72. Pobre Uyamot
 73. DVO Psychiatrists
-74. Swiss Boy 
+74. Swedish  
 75. Latest Herusalem
 76. Jamaicans
-77. Mandaluyong Loob
+77. Mandaluyong Open University
 78. Republic of Cubao
-79. Bao
+79. Pagong Island
 80. Mongolians
 81. Tolos
-82. ® Davao Supreme Kingdom
+82. Davao Supreme Courts
 83. Haitinians
 84. Dominicans
-85. Panas Heavens
+85. Panas Memorial Garden
 86. Romanians
 87. Gracelending
 88. St. Helier, Jersey
 89. Indonesians
-90. Killah Republicans
+90. Germania Killah 
 91. Dabaw (Filipino)
 92. The State of Vatican City 
  👀 👁️ 👀 👁️ 
