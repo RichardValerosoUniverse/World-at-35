@@ -120,7 +120,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 87. Gracelending
 88. St. Helier, Jersey
 89. Indonesians
-90. Germania Killah 
+90. 
 91. Cubao ibabaw
 92. The State of Vatican City 
  👀 👁️ 👀 👁️ 
