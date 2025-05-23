@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. España
 2. TJ
-3. 
+3. STI near Ateneo de Davao Boys
 4. Venezuelans
 5. Saudia Republicans
 6. Duvah
@@ -59,7 +59,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 24. Tyanak
 25. Angolians
 26. Veterinarians
-27. Cyprose
+27. Cypr
 28. Congo
 29. Mexiko
 30. Porgatoryo
