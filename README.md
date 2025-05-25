@@ -34,7 +34,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. España
-2. TJ
+2. JT
 3. STI near Ateneo de Davao Boys
 4. Venezuelans
 5. Saudia
@@ -45,19 +45,19 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 10. BoysTown designed by ChinaTown
 11. Chilians
 12. Italiannis
-13. Perta Vah
+13. Pertavah
 14. Salvage
 15. Dominique
 16. Bravest
 17. Zimbabus
 18. Netherlending
 19. Baha
-20. Africans
+20. Africañans
 21. Koreans
 22. Malaysians
 23. Franciscos
 24. Tyanak
-25. Angolians
+25. Angoliañans
 26. Veterinarians
 27. Cyprusians
 28. Congo
@@ -75,7 +75,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 40. Carabao Greenland Grass
 41. Bulad
 42. Jorgians
-43. Icela
+43. Islander
 44. Omen
 45. Qatari
 46. Bureau of Internal Revenue Davao 
@@ -115,7 +115,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 82. Davao Supreme Courts
 83. Haitinians
 84. Dominicans
-85. Panas Memorial Garden
+85. Panas Garden Park
 86. Romanians
 87. Gracelending
 88. St. Helier, Jersey
