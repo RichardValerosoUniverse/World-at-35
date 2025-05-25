@@ -25,7 +25,7 @@ Basically, Myself of mine is digitally creative with the spirits of all existing
 JCBs, bancnet, World Elite Mastercard and the like and a lot more...
 
 With all of these, Myself of mine is still at myself of mine's greatest sanity.
-Myself of mine is now known as 😀: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and Myself of mine is never  gonna be ever fooled into believing something
+Myself of mine is now known as 🤣: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and Myself of mine is never  gonna be ever fooled into believing something
 that is OUT of contexts and relevance of pure knowledge with regard to myself of mine's experiences, aligning to myself of mine's Team Experiences in the GitHub Universe.
 
 Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today and forever! 
@@ -46,24 +46,24 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 11. Chilians
 12. Italiannis
 13. Perta Vah
-14. El Salvage
+14. Salvage
 15. Dominique
-16. Brave
+16. Bravest
 17. Zimbabus
 18. Netherlending
-19. Baja
+19. Baha
 20. Africans
 21. Koreans
 22. Malaysians
-23. Francisco
+23. Franciscos
 24. Tyanak
 25. Angolians
 26. Veterinarians
-27. Cypr
+27. Cyprusians
 28. Congo
 29. Mexiko
 30. Porgatoryo
-31. Costa Er
+31. Costavah
 32. Tai
 33. Myans
 34. Australians
@@ -93,7 +93,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 60. Tonvah
 61. Trinitians
 62. Austrians
-63. Tyanak Ng Pulis
+63. Anak Ng Pulis
 64. Bolivians
 65. Belizians
 66. Baklish Prison Cells
@@ -103,7 +103,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 70. No Wati
 71. Mabdos
 72. Pobre Uyamot
-73. DVO Psychiatrists
+73. Cremationist
 74. Swedish  
 75. Latest Herusalem
 76. Jamaicans
@@ -120,7 +120,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 87. Gracelending
 88. St. Helier, Jersey
 89. Indonesians
-90. 
+90. Germania Kilay
 91. Cubao ibabaw
 92. The State of Vatican City 
  👀 👁️ 👀 👁️ 
