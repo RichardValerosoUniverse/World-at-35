@@ -37,10 +37,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 2. TJ
 3. STI near Ateneo de Davao Boys
 4. Venezuelans
-5. Saudia Republicans
+5. Saudia
 6. Duvah
 7. The Washington DC
-8. F thru W
+8. F designed by W
 9. Ukraine
 10. BoysTown designed by ChinaTown
 11. Chilians
@@ -73,12 +73,12 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 38. Fin
 39. Caymen 
 40. Carabao Greenland Grass
-41. Pola
+41. Bulad
 42. Jorgians
 43. Icela
 44. Omen
 45. Qatari
-46. Bureau of Internal Revenue Philippines 
+46. Bureau of Internal Revenue Davao 
 47. Thai
 49. Micronesians
 50. Brunay
@@ -107,7 +107,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 74. Swedish  
 75. Latest Herusalem
 76. Jamaicans
-77. Mandaluyong Open University
+77. Mandaluyong Loob Universe
 78. Republic of Cubao
 79. Pagong Island
 80. Mongolians
@@ -120,8 +120,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 87. Gracelending
 88. St. Helier, Jersey
 89. Indonesians
-90. Germania Kilay
-91. Cubao ibabaw
+90. Germañan Kilay
+91. Davao ibabaw at ilalim
 92. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
