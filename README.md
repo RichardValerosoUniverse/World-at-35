@@ -137,10 +137,10 @@ I am redirected and I have never been DENIED in all my endeavors!!!
 My Triumphs!!! My sacrifices have turned water into wine and my imaginations into Paradise.
 
 "Bravissimus"
-"Veritas"
-Truth hurts but Myself of mine is the Greatest Killah! 
+"Truth"
+Veritas hurts & Myself of mine is the Greatest Killah! 
 
-Let us sing the "Run This Town, Cartoon Heroes, This Is The House and Tarzan Boy"! 😂
+Let us sing the "Run This Town, Cartoon Heroes, and Tarzan Boy"! 😂
 
 
 #GoodToBeNeverAlone
