@@ -122,7 +122,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 89. Gracelanding
 90. St. Helier, Jersey
 91. Indonesia
-92. Germañan Kilay
+92. Germañan Killahs
 93. Immaculate Conception Boys
 94. Davao ibabaw at ilalim
 95. The State of Vatican City 
