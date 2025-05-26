@@ -33,7 +33,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500.
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
-1. Espanya
+1. Spain
 2. JT
 3. STI Boys
 4. Venezuela
