@@ -107,7 +107,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 74. Swedish  
 75. Latest Herusalem
 76. Jamaica
-77. Mandaluyong Loob Universe
+77. Mandaluyong Loob Mental Asylum
 78. Republic of Wiki
 79. Turtles
 80. Mongolians
