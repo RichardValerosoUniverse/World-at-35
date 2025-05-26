@@ -44,7 +44,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 9. Ukraine
 10. BoysTown designed by ChinaTown
 11. Chile
-12. Italiannis
+12. Italy
 13. Pertavah
 14. Salvage
 15. Dominique
@@ -53,16 +53,16 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 18. Netherlending
 19. Baha
 20. Africañans
-21. Koreans
-22. Malaysians
+21. Korea
+22. Malay
 23. Franciscos
 24. Tyanak
 25. Angoliañans
 26. Veterinarians
-27. Cyprusians
-28. Congo
-29. Mexiko
-30. Porgatoryo
+27. Cyprus
+28. Santa Cruz, Philippines
+29. Angeles City, Pampanga
+30. Porgatorio
 31. Costavah
 32. Toktok
 33. Myans
@@ -76,7 +76,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 41. Bulad
 42. Jorgians
 43. Islander
-44. Omen
+44. Ayala Rewards Circle
 45. Qatari
 46. Bureau of Internal Revenue Davao 
 47. Thailand
@@ -92,14 +92,14 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 59. Lesotho
 60. Tonvah
 61. Trinitians
-62. Austrians
+62. Austria
 63. Anak Ng Pulis
 64. Bolivians
 65. Belizians
 66. Baklish Prison Cells
 67. Kapalmukz
 68. Kikiyo
-69. Sykeser
+69. Sykes
 70. Worms
 71. Mabdos
 72. Pobre Uyamot
