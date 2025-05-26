@@ -61,7 +61,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 26. Veterinarians
 27. Cyprus
 28. Santa Cruz, Philippines
-29. Angeles City, Pampanga
+29. Angeles City
 30. Porgatorio
 31. Costavah
 32. Toktok
