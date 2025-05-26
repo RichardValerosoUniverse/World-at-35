@@ -99,7 +99,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 66. Baklish Prison Cells
 67. Kapalmukz
 68. Kikiyo
-69. Pearsoni
+69. Sykeser
 70. Worms
 71. Mabdos
 72. Pobre Uyamot
