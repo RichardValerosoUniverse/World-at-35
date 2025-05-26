@@ -33,10 +33,10 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and Myself of mine is never gonna be in the other 49 States.
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
-1. España
+1. Espanya
 2. JT
-3. STI near Ateneo de Davao Boys
-4. Venezuelans
+3. Ateneo de Davao Boys & STI Boys
+4. Venezuela
 5. Saudia
 6. Duvah
 7. Washingtoñans
@@ -64,14 +64,14 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 29. Mexiko
 30. Porgatoryo
 31. Costavah
-32. Tai
+32. Toktok
 33. Myans
 34. Australians
-35. Bartolina
+35. Bartolina, Cubao
 36. Cambodians
-37. Bel-air
+37. Bel-air, Makati City
 38. Fin
-39. Caymen 
+39. Cayman Islands
 40. Carabao Greenland Grass
 41. Bulad
 42. Jorgians
@@ -79,16 +79,16 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 44. Omen
 45. Qatari
 46. Bureau of Internal Revenue Davao 
-47. Thai
+47. Thailand
 49. Micronesians
-50. Brunay
+50. Brunei
 51. Swedish
 53. Den
 54. Luxem
 55. Monako
 56. Liechtensteinn
 57. Bhuvah
-58. Eswatinin
+58. Atinin Store
 59. Lesotho
 60. Tonvah
 61. Trinitians
@@ -99,29 +99,29 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 66. Baklish Prison Cells
 67. Kapalmukz
 68. Kikiyo
-69. Ferson
-70. No Wati
+69. Pearsoni
+70. Worms
 71. Mabdos
 72. Pobre Uyamot
 73. Cremationist
 74. Swedish  
 75. Latest Herusalem
-76. Jamaicans
+76. Jamaica
 77. Mandaluyong Loob Universe
 78. Republic of Cubao
-79. Pagong Island
+79. Turtles
 80. Mongolians
-81. Tolos
+81. Sperm Cell
 82. Davao Supreme Courts
 83. Haitinians
 84. Lao
 85. Cambodia
 86. Dominicans
-87. Panas Garden Park
-88. Romanians
-89. Gracelending
+87. Garden City Of Panas
+88. Roma
+89. Grasya
 90. St. Helier, Jersey
-91. Indonesians
+91. Indonesia
 92. Germañan Kilay
 93. Davao ibabaw at ilalim
 94. The State of Vatican City 
