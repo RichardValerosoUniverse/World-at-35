@@ -117,7 +117,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 84. Lao
 85. Cambodia
 86. Dominicans
-87. Garden City Of Panas
+87. Island Garden City Of Panas
 88. Roma
 89. Grasya
 90. St. Helier, Jersey
