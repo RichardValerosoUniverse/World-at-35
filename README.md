@@ -34,7 +34,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spain
-2. JT
+2. LBC
 3. STI Boys
 4. Venezuela
 5. Saudia
