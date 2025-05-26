@@ -43,7 +43,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 8. F designed by W
 9. Ukraine
 10. BoysTown designed by ChinaTown
-11. Chilians
+11. Chile
 12. Italiannis
 13. Pertavah
 14. Salvage
@@ -83,7 +83,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 49. Micronesians
 50. Brunei
 51. Swedish
-53. Den
+53. Pinakbet Gang
 54. Luxem
 55. Monako
 56. Liechtensteinn
