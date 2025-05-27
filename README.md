@@ -62,7 +62,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 27. Cyprus
 28. Santa Cruz, Philippines
 29. Angeles City
-30. Porgatorio
+30. Levi's
 31. Costavah
 32. Toktok
 33. Myans
@@ -74,13 +74,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 39. Cayman Islands
 40. Carabao Greenland Grass
 41. Bulad
-42. Jorgians
+42. Sperry
 43. Islander
 44. Ayala Rewards Circle
-45. Qatari
-46. Bureau of Internal Revenue Davao 
-47. Thailand
-49. Micronesians
+45. Qatar
+47. Bureau of Internal Revenue Davao 
+48. Thailand
+49. Micronesia
 50. Brunei
 51. Swedish
 53. Pinakbet Gang
@@ -97,7 +97,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 64. Bolivians
 65. Belizians
 66. Baklish Prison Cells
-67. Kapalmukz
+67. Habayabas
 68. Kikiyo
 69. Sykes
 70. Worms
@@ -118,7 +118,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 85. Cambodia
 86. Dominicans
 87. Island Garden City Of Panas
-88. Roma
+88. Spartan
 89. Gracelanding
 90. St. Helier, Jersey
 91. Indonesia
