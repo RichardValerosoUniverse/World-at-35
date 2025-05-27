@@ -143,7 +143,7 @@ My Triumphs!!! My sacrifices have turned water into wine and my imaginations int
 "Truth"
 Veritas hurts & Myself of mine is the Greatest Killah! 
 
-Let us sing the "Run This Town, Cartoon Heroes, and Tarzan Boy"! 😂
+Let us sing the "Run This Town, Killah, Cartoon Heroes, and Tarzan Boy"! 😂
 
 
 #GoodToBeNeverAlone
