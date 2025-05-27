@@ -65,12 +65,12 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 30. Levi's
 31. Costavah
 32. Toktok
-33. Myans
+33. State Of Kuwait
 34. Australians
 35. Bartolina, Cubao
 36. Otin Island
 37. Bel-air, Makati City
-38. Fin
+38. SM Advantage
 39. Cayman Islands
 40. Carabao Greenland Grass
 41. Bulad
