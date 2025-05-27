@@ -3,9 +3,9 @@ The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
 been seen, felt and activated by the essence of the systems. All "Git" has a footprint. Like a footprint 👣 in the sand.
-Get a LIFE and remember all the dots.
+Get a LIFE and remembah all the dots.
 Connecting all dots from all sources.
-There is only one powerful and that is GOD. Like Oh My God!
+There is only one powerful and that is Jesus Christ because I was born being Christian thru Roman Catholic.
 Building an understanding takes a lot of struggles, sacrifices, confusions,
 and dilemma. A lot of temptations & destructions along the way.
 Believing in oneself is beyond the normal as it focuses on something
