@@ -103,7 +103,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 70. Worms
 71. Mabdos
 72. Pobre Uyamot
-73. Cremationist
+73. The Cremationist
 74. Swedish  
 75. Latest Herusalem
 76. Jamaica
