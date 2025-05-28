@@ -57,13 +57,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 22. Malay
 23. Franciscos
 24. Ateneo Boys
-25. Angoliañans
+25. CWC
 26. Veterinarians
-27. Cyprus
+27. MicrosoftAITour
 28. Santa Cruz, Philippines
 29. Angeles City
 30. Levi's
-31. Costavah
+31. Gcash
 32. Toktok
 33. State Of Kuwait
 34. Australians
@@ -73,16 +73,16 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 38. SM Advantage
 39. Cayman Islands
 40. Carabao Greenland Grass
-41. Bulad
+41. Bayad
 42. Sperry
 43. Islander
 44. Ayala Rewards Circle
 45. Qatar
 47. Bureau of Internal Revenue Davao 
-48. Thailand
+48. Thailander
 49. Micronesia
 50. Brunei
-51. Swedish
+51. Hugas Plato
 53. Pinakbet Gang
 54. Luxem
 55. Monako
@@ -106,22 +106,22 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 73. The Cremationist
 74. Swedish  
 75. Latest Herusalem
-76. Jamaica
+76. Japacanadas
 77. Mandaluyong Loob Mental Asylum
 78. Republic of Wiki
-79. Turtles
-80. Mongolians
+79. Baganga
+80. Lapis
 81. Sperm Cell
 82. Davao Supreme Courts
 83. Haitinians
-84. Lao
+84. Lao Santa Ana Sea Walls
 85. Cambodia
 86. Dominicans
 87. Island Garden City Of Panas
 88. Spartan
 89. Gracelanding
 90. St. Helier, Jersey
-91. Indonesia
+91. Indonesia Embassy
 92. Germañan Killahs
 93. Immaculate Conception Boys
 94. Davao ibabaw at ilalim
