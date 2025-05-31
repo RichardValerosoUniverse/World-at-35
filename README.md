@@ -45,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 10. BoysTown designed by ChinaTown
 11. Chile
 12. Italy
-13. Pertavah
+13. Bayside Subd.
 14. Salvage
 15. Dominique
 16. Bravest
