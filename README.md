@@ -50,7 +50,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 15. Dominique
 16. Bravest
 17. Zimbabus
-18. Netherlending
+18. @ValerosoRichard    
 19. Baha
 20. Africañans
 21. Korea
@@ -78,8 +78,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 43. Islander
 44. Ayala Rewards Circle
 45. Qatar
-47. Bureau of Internal Revenue Davao 
-48. Thailander
+47. Bureau of Internal Revenue Philippines
+48. Thailand
 49. Micronesia
 50. Brunei
 51. Hugas Plato
@@ -99,27 +99,27 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 66. Baklish Prison Cells
 67. Habayabas
 68. Kikiyo
-69. Sykes
+69. Sykesers
 70. Worms
 71. Mabdos
 72. Pobre Uyamot
 73. The Cremationist
-74. Swedish  
+74. Non-Swedish  
 75. Latest Herusalem
 76. Japacanadas
 77. Mandaluyong Loob Mental Asylum
-78. Republic of Wiki
-79. Baganga
+78. Republic of Salsal
+79. Burdagol
 80. Lapis
 81. Sperm Cell
 82. Davao Supreme Courts
-83. Haitinians
+83. Haitiñan
 84. Lao Santa Ana Sea Walls
 85. Cambodia
 86. Dominicans
 87. Island Garden City Of Panas
 88. Spartan
-89. Gracelanding
+89. Isum
 90. St. Helier, Jersey
 91. Indonesia Embassy
 92. Germañan Killahs
