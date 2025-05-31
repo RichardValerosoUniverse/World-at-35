@@ -36,7 +36,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 1. Spain
 2. Interface Boys
 3. STI Boys
-4. Venezuela
+4. 24/7 CUSTOMER PHILIPPINES
 5. Saudia
 6. Duvah
 7. Washingtoñans
