@@ -63,7 +63,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 28. Santa Cruz, Philippines
 29. Angeles City
 30. Levi's
-31. Gcash
+31. Maya
 32. Toktok
 33. State Of Kuwait
 34. Australians
@@ -84,7 +84,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 50. Brunei
 51. Hugas Plato
 53. Pinakbet Gang
-54. Luxem
+54. Suki Card
 55. Monako
 56. Liechtensteinn
 57. City Hall Of Davao
