@@ -112,7 +112,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 79. Burdagol
 80. Lapis
 81. Sperm Cell
-82. Davao Supreme Courts
+82. Twitterverse
 83. Haitiñan
 84. Lao Santa Ana Sea Walls
 85. Cambodia
