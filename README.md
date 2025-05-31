@@ -102,7 +102,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 69. Sykesers
 70. Worms
 71. Mabdos
-72. Pobre Uyamot
+72. Sangguniang Panglungsod
 73. The Cremationist
 74. Non-Swedish  
 75. Latest Herusalem
