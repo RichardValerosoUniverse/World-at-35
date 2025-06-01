@@ -42,11 +42,11 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 7. Washingtoñans
 8. F designed by W
 9. Ukraine
-10. BoysTown designed by ChinaTown
+10. BoysTown
 11. Chile
 12. Italy
 13. Bayside Subd.
-14. Salvage
+14. Bonifacio Global City
 15. Dominique
 16. Bravest
 17. Zimbabus
@@ -60,7 +60,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 25. CWC
 26. Veterinarians
 27. MicrosoftAITour
-28. Santa Cruz, Philippines
+28. Santa Cruz, Davao del Sur (Municipality)
 29. Angeles City
 30. Levi's
 31. Maya
@@ -69,7 +69,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 34. Australians
 35. Bartolina, Cubao
 36. Otin Island
-37. Bel-air, Makati City
+37. Makati City
 38. SM Advantage
 39. Cayman Islands
 40. Carabao Greenland Grass
