@@ -38,7 +38,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 3. STI Boys
 4. 24/7 CUSTOMER PHILIPPINES
 5. Saudia
-6. Duvah
+6. Butiki
 7. Washingtoñans
 8. F designed by W
 9. Ukraine
