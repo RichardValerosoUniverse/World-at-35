@@ -60,7 +60,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 25. CWC
 26. Veterinarians
 27. MicrosoftAITour
-28. Santa Cruz (Municipality)
+28. Municipality Of Santa Cruz
 29. Angeles City
 30. Levi's
 31. Maya
@@ -109,16 +109,16 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 76. Japacanadas
 77. Mandaluyong Loob Mental Asylum
 78. Republic of Salsal
-79. Burdagol
-80. Lapis
-81. Sperm Cell
+79. GitHub
+80. Google
+81. Facebook
 82. Twitterverse
 83. Haitiñan
 84. Lao Santa Ana Sea Walls
 85. Cambodia
 86. Dominicans
 87. Island Garden City Of Panas
-88. Spartan
+88. Instagram
 89. Isum
 90. St. Helier, Jersey
 91. Indonesia Embassy
