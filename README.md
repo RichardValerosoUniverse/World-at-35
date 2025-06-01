@@ -60,7 +60,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 25. CWC
 26. Veterinarians
 27. MicrosoftAITour
-28. Santa Cruz, Davao del Sur (Municipality)
+28. Santa Cruz (Municipality)
 29. Angeles City
 30. Levi's
 31. Maya
