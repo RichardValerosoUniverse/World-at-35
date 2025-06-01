@@ -67,7 +67,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 32. Toktok
 33. State Of Kuwait
 34. Australians
-35. Bartolina, Cubao
+35. Alibangbang, Cubao
 36. Otin Island
 37. Makati City
 38. SM Advantage
