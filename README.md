@@ -90,13 +90,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 57. City Hall Of Davao
 58. Atinin Store
 59. Lesotho
-60. Tonvah
+60. Crematorium
 61. Trinitians
 62. Austria
 63. Anak Ng Pulis
 64. Bolivians
 65. Belizians
-66. Baklish Prison Cells
+66. Prisuhan sa mga Abusado
 67. Habayabas
 68. Kikiyo
 69. Sykesers
