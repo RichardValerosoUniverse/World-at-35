@@ -36,7 +36,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 1. Spain
 2. DDS
 3. STI Boys
-4. 24/7 CUSTOMER PHILIPPINES
+4. 
 5. Saudia
 6. Butiki
 7. Washingtoñans
@@ -66,12 +66,12 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 31. Maya
 32. Toktok
 33. State Of Kuwait
-34. Australians
-35. Alibangbang, Cubao
-36. Inspiro
+34. 
+35. 
+36. 
 37. Makati City
 38. SM Advantage
-39. Cayman Islands
+39. 
 40. Carabao Greenland Grass
 41. Bayad
 42. Sperry
@@ -99,9 +99,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 66. Prisuhan sa mga Abusado
 67. Habayabas
 68. Kikiyo
-69. Sykesers
-70. Worms
-71. Mabdos
+69. 
+70. 
+71. 
 72. Sangguniang Panglungsod
 73. The Cremationist
 74. Non-Swedish  
