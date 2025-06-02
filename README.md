@@ -42,9 +42,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 7. Washingtoñans
 8. F designed by W
 9. Ukraine
-10. BoysTown
-11. Chile
-12. Italy
+10. 
+11. 
+12. 
 13. Bayside Village
 14. Bonifacio Global City
 15. Mango Quality
@@ -88,7 +88,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 55. Monako
 56. Liechtensteinn
 57. City Hall Of Davao
-58. Atinin Store
+58. I don't know
 59. Lesotho
 60. Crematorium
 61. Trinitians
