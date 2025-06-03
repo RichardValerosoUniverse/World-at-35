@@ -37,7 +37,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 2. DDS (Davao del Sur)
 3. STI Boys (School)
 4. Universe Boulevard
-5. Saudia
+5. Scout Madriñan
 6. World MasterCard
 7. Washingtoñans
 8. F designed by W
@@ -113,7 +113,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 80. Google Developers
 81. Facebook Rewards Circle
 82. Twitterverse
-83. Haitiñan
+83. Metro Manila Subway
 84. Santa Ana Sea Walls
 85. Cambodia
 86. Dominicans
