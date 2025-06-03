@@ -38,10 +38,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 3. STI Boys
 4. Universe Boulevard
 5. Saudia
-6. Butiki
+6. World Card
 7. Washingtoñans
 8. F designed by W
-9. Ukraine
+9. World Elite Mastercard
 10. Like This
 11. Alcatraz
 12. The Valeroso City
