@@ -48,8 +48,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 13. Bayside Village
 14. Bonifacio Global City
 15. Mango Quality
-16. Bravest
-17. Zimbabus
+16. SPMC-IPBM
+17. Diegos
 18. @ValerosoRichard    
 19. Valeroso City 1111
 20. Africañans
