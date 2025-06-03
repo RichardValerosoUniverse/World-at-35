@@ -30,7 +30,7 @@ that is OUT of contexts and relevance of pure knowledge with regard to myself of
 
 Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today and forever! 
 
-Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and from to time My Time can be found in some other states whether or not in the state of freedom, state of laughter or state of depression, among others.
+Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and from to time My Time can be found in some other states whether or not in the state of freedom, state of laughter or state of depression, state of pain, state of revenge, staye of smile, state of nothingness, state of imagination, state of luxury, state of fullness, state of whatevah, among others.
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. España
