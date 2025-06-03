@@ -48,7 +48,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 13. Bayside Village
 14. Bonifacio Global City
 15. Mango Quality
-16. SPMC-IPBM
+16. SPMC
 17. Diegos
 18. @ValerosoRichard    
 19. Valeroso City 1111
@@ -124,7 +124,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 91. Indonesia Embassy
 92. Germañan Killahs
 93. Immaculate Conception Boys (School)
-94. Davao ibabaw at ilalim
+94. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
 95. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
