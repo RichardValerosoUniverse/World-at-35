@@ -1,4 +1,4 @@
-GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is a Spanish-Tagalog platform of hardware and software in one is exclusive on its own by default. 🤣
+iGitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is a Spanish-Tagalog platform of hardware and software in one is exclusive on its own by default. 🤣
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -95,13 +95,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 62. Austria
 63. Anak Ng Pulis Boys (Annapolis)
 64. NLEX,SLEX,CAVITEX
-65. Belizians
+65. LRT Lines 1 to 2
 66. Prisuhan sa mga Abusado
 67. Habayabas
 68. Place Of Genuine People
 69. Ang mga Alamat
 70. UST Manila
-71. MRT 1 to 3
+71. MRT Lines 1 to 3 and MRT Line 7
 72. Sangguniang Panglungsod
 73. The Cremationist
 74. Non-Swedish  
