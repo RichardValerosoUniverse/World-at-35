@@ -38,7 +38,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 3. STI Boys
 4. Universe Boulevard
 5. Saudia
-6. World Card
+6. World MasterCard
 7. Washingtoñans
 8. F designed by W
 9. World Elite Mastercard
@@ -52,7 +52,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 17. Diegos
 18. @ValerosoRichard    
 19. Valeroso City 1111
-20. Africañans
+20. Visa
 21. Korea
 22. Malay
 23. Franciscos
@@ -75,17 +75,17 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 40. Carabao Greenland Grass
 41. Bayad
 42. Sperry
-43. Islander
+43. JCB
 44. Ayala Rewards Circle
 45. Qatar
 47. Bureau of Internal Revenue Philippines
 48. Thailand
 49. Micronesia
-50. Brunei
+50. AMEX
 51. Hugas Plato
 53. Department Of Health Philippines
 54. Suki Card
-55. Monako
+55. UnionPay
 56. Liechtensteinn
 57. City Hall Of Davao
 58. I don't know
@@ -94,7 +94,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 61. Trinitians
 62. Austria
 63. Anak Ng Pulis
-64. Bolivians
+64. NLEX,SLEX,CAVITEX
 65. Belizians
 66. Prisuhan sa mga Abusado
 67. Habayabas
