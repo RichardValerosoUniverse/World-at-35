@@ -120,7 +120,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 87. Island Garden City Of Sperm Cell
 88. Instagram
 89. Isum
-90. St. Helier, Jersey
+90. Indian Killahs
 91. Indonesia Embassy
 92. Germañan Killahs
 93. Immaculate Conception Boys (School)
