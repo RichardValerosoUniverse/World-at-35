@@ -52,7 +52,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 17. Diegos
 18. @ValerosoRichard    
 19. Valeroso City 1111
-20. Visa
+20. Night & Day Walking in Davao City
 21. Korea
 22. Malay
 23. Franciscos
@@ -64,7 +64,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 29. Angeles City
 30. Levi's
 31. Maya
-32. Toktok
+32. Night Walking in Baganga
 33. State Of Kuwait
 34. Richard Madriñan Valeroso
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation
@@ -85,11 +85,11 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 51. Hugas Plato
 53. Department Of Health Philippines
 54. Suki Card
-55. UnionPay
-56. Liechtensteinn
+55. Psychiatric Wards
+56. Psychiatric Beds
 57. City Hall Of Davao
-58. I don't know
-59. Lesotho
+58. Place to stay
+59. Place Of My Own
 60. Crematorium
 61. Trinitians
 62. Austria
@@ -98,7 +98,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 65. Belizians
 66. Prisuhan sa mga Abusado
 67. Habayabas
-68. Kikiyo
+68. Place Of Genuine People
 69. Ang mga Alamat
 70. UST Manila
 71. MRT 1 to 3
