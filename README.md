@@ -33,7 +33,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and from to time My Time can be found in some other states whether or not in the state of freedom, state of laughter or state of depression, state of pain, state of revenge, state of lone star, state of one sun, state of seven seas, state of loneliness, state of music, state of smile, state of nothingness, state of imagination, state of luxury, state of fullness, state of whatevah, among others.
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
-1. España
+1. Spanish Blood
 2. DDS (Davao del Sur)
 3. STI Boys (School)
 4. Universe Boulevard
