@@ -106,7 +106,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 73. The Cremationist
 74. PH Expressways
 75. Latest Herusalem
-76. Kris Flyer
+76. AirAsia Rewards
 77. Mandaluyong Loob Mental Asylum
 78. Republic of Dry & Wet Sauna
 79. GitHub Developers
