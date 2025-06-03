@@ -100,8 +100,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 67. Habayabas
 68. Kikiyo
 69. Ang mga Alamat
-70. 
-71. 
+70. UST Manila
+71. MRT 1 to 3
 72. Sangguniang Panglungsod
 73. The Cremationist
 74. Non-Swedish  
