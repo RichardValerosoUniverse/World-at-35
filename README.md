@@ -61,7 +61,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 26. Veterinarians
 27. MicrosoftAITour
 28. Municipality Of Santa Cruz
-29. Angeles City
+29. Manila City
 30. Levi's
 31. Maya
 32. Night Walking in Baganga
