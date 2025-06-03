@@ -51,7 +51,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 16. Bravest
 17. Zimbabus
 18. @ValerosoRichard    
-19. Baha
+19. Valeroso City 1111
 20. Africañans
 21. Korea
 22. Malay
@@ -83,7 +83,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 49. Micronesia
 50. Brunei
 51. Hugas Plato
-53. Pinakbet Gang
+53. Department Of Health Philippines
 54. Suki Card
 55. Monako
 56. Liechtensteinn
