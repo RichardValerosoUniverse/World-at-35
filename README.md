@@ -92,7 +92,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 59. Place Of My Own
 60. Crematorium
 61. San Juan City,MM
-62. Austria
+62. Davao Coastal Road
 63. Anak Ng Pulis Boys (Annapolis)
 64. Philippine Airlines
 65. LRT Lines 1 to 2
@@ -106,7 +106,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 73. The Cremationist
 74. PH Expressways
 75. Latest Herusalem
-76. Japacanadas
+76. Japanacanada
 77. Mandaluyong Loob Mental Asylum
 78. Republic of Dry & Wet Sauna
 79. GitHub Developers
@@ -115,7 +115,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 82. Twitterverse
 83. Metro Manila Subway
 84. Santa Ana Sea Walls
-85. Cambodia
+85. Rizal Park
 86. Dominicans
 87. Island Garden City Of Sperm Cell
 88. Instagram
