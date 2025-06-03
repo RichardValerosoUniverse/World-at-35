@@ -91,7 +91,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 58. Place to stay
 59. Place Of My Own
 60. Crematorium
-61. Trinitians
+61. San Juan City,MM
 62. Austria
 63. Anak Ng Pulis Boys (Annapolis)
 64. NLEX,SLEX,CAVITEX
