@@ -112,7 +112,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 79. GitHub Developers
 80. Google Developers
 81. Facebook Rewards Circle
-82. 
+82. San Pedro Cathedral Parish Church
 83. Metro Manila Subway
 84. Santa Ana Sea Walls
 85. Rizal Park
