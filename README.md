@@ -108,7 +108,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 75. Latest Herusalem
 76. AirAsia Rewards
 77. Mandaluyong Loob Mental Asylum
-78. Republic of Dry & Wet Sauna
+78. Republic of Both Dry & Wet Sauna
 79. GitHub Developers
 80. Google Developers
 81. Facebook Rewards Circle
