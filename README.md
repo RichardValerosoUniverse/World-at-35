@@ -65,7 +65,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 30. Levi's
 31. Maya
 32. Night Walking in Baganga
-33. State Of Kuwait
+33. RMV
 34. Richard Madriñan Valeroso
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation
 36. @RichardValerosoUniverse
@@ -82,7 +82,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 48. Thailand
 49. Micronesia
 50. AMEX
-51. Hugas Plato
+51. Hugas Plato Department 
 53. Department Of Health Philippines
 54. Suki Card
 55. Psychiatric Wards
