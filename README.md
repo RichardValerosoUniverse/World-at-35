@@ -106,13 +106,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 73. The Cremationist
 74. PH Expressways
 75. Latest Herusalem
-76. Japacanadas
+76. Metro Manila Subway
 77. Mandaluyong Loob Mental Asylum
 78. Republic of Dry & Wet Sauna
 79. GitHub Developers
 80. Google Developers
 81. Facebook Rewards Circle
-82. Twitterverse
+82. Bus Stations
 83. Haitiñan
 84. Santa Ana Sea Walls
 85. Cambodia
