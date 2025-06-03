@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. España
 2. DDS (Davao del Sur)
-3. STI Boys
+3. STI Boys (School)
 4. Universe Boulevard
 5. Saudia
 6. World MasterCard
@@ -56,7 +56,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 21. Korea
 22. Malay
 23. Franciscos
-24. Ateneo Boys
+24. Ateneo Boys (School)
 25. CWC
 26. Veterinarians
 27. MicrosoftAITour
@@ -93,7 +93,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 60. Crematorium
 61. Trinitians
 62. Austria
-63. Anak Ng Pulis
+63. Anak Ng Pulis Boys (Annapolis)
 64. NLEX,SLEX,CAVITEX
 65. Belizians
 66. Prisuhan sa mga Abusado
@@ -114,7 +114,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 81. Facebook Rewards Circle
 82. Twitterverse
 83. Haitiñan
-84. Lao Santa Ana Sea Walls
+84. Santa Ana Sea Walls
 85. Cambodia
 86. Dominicans
 87. Island Garden City Of Sperm Cell
@@ -123,7 +123,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 90. St. Helier, Jersey
 91. Indonesia Embassy
 92. Germañan Killahs
-93. Immaculate Conception Boys
+93. Immaculate Conception Boys (School)
 94. Davao ibabaw at ilalim
 95. The State of Vatican City 
  👀 👁️ 👀 👁️ 
