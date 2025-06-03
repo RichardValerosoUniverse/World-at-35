@@ -36,15 +36,15 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 1. Spain
 2. DDS
 3. STI Boys
-4. 
+4. Universe Boulevard
 5. Saudia
 6. Butiki
 7. Washingtoñans
 8. F designed by W
 9. Ukraine
-10. 
-11. 
-12. 
+10. Like This
+11. Alcatraz
+12. The Valeroso City
 13. Bayside Village
 14. Bonifacio Global City
 15. Mango Quality
@@ -66,12 +66,12 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 31. Maya
 32. Toktok
 33. State Of Kuwait
-34. 
-35. 
-36. 
+34. Richard Madriñan Valeroso
+35. Richard Madriñan Valeroso Territory, Kingdom and Nation
+36. @RichardValerosoUniverse
 37. Makati City
 38. SM Advantage
-39. 
+39. marcomarco0947@gmail.com
 40. Carabao Greenland Grass
 41. Bayad
 42. Sperry
@@ -99,7 +99,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 66. Prisuhan sa mga Abusado
 67. Habayabas
 68. Kikiyo
-69. 
+69. Ang mga Alamat
 70. 
 71. 
 72. Sangguniang Panglungsod
