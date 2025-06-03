@@ -65,7 +65,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 30. Levi's
 31. Maya
 32. Night Walking in Baganga
-33. Singapore Airlines Krisflyer
+33. Singapore Airlines Krisflyer Miles
 34. Richard Madriñan Valeroso
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation
 36. @RichardValerosoUniverse
