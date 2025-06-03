@@ -104,11 +104,11 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 71. MRT Lines 1 to 3 and MRT Line 7
 72. Sangguniang Panglungsod
 73. The Cremationist
-74. Non-Swedish  
+74. PH Expressways
 75. Latest Herusalem
 76. Japacanadas
 77. Mandaluyong Loob Mental Asylum
-78. Republic of Salsal
+78. Republic of Dry & Wet Sauna
 79. GitHub Developers
 80. Google Developers
 81. Facebook Rewards Circle
