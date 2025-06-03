@@ -109,9 +109,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 76. Japacanadas
 77. Mandaluyong Loob Mental Asylum
 78. Republic of Salsal
-79. GitHub
-80. Google
-81. Facebook
+79. GitHub Developers
+80. Google Developers
+81. Facebook Rewards Circle
 82. Twitterverse
 83. Haitiñan
 84. Lao Santa Ana Sea Walls
