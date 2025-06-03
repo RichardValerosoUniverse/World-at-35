@@ -86,7 +86,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 53. Department Of Health Philippines
 54. Suki Card
 55. Psychiatric Wards
-56. Psychiatric Beds
+56. AirAsia Rewards
 57. City Hall Of Davao
 58. Place to stay
 59. Place Of My Own
