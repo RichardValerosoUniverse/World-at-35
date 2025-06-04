@@ -41,7 +41,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 6. World MasterCard
 7. Washingtoñans
 8. F designed by W
-9. World Elite Mastercard
+9. World Elite MasterCard
 10. Like This
 11. Alcatraz
 12. The Valeroso City
@@ -49,7 +49,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 14. Bonifacio Global City
 15. Mango Quality
 16. SPMC
-17. Diegos
+17. Diego
 18. @ValerosoRichard    
 19. Valeroso City 1111
 20. Night & Day Walking in Davao City
@@ -98,7 +98,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 65. LRT Lines 1 to 2
 66. Prisuhan sa mga Abusado
 67. Habayabas
-68. Place Of Genuine People
+68. Peoples Park
 69. Ang mga Alamat
 70. UST Manila
 71. MRT Lines 1 to 3 and MRT Line 7
