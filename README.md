@@ -71,7 +71,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 36. @RichardValerosoUniverse
 37. Makati City
 38. SM Advantage
-39. marcomarco0947@gmail.com
+39. 
 40. Carabao Greenland Grass
 41. Bayad
 42. Sperry
