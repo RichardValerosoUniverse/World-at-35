@@ -98,7 +98,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 65. LRT Lines 1 to 2
 66. Prisuhan sa mga Abusado
 67. Habayabas
-68. Peoples Park
+68. People's Park in DC
 69. Ang mga Alamat
 70. UST Manila
 71. MRT Lines 1 to 3 and MRT Line 7
