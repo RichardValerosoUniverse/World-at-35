@@ -71,7 +71,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 36. @RichardValerosoUniverse
 37. Makati City
 38. SM Advantage
-39. 
+39. Cubao, QC
 40. Carabao Greenland Grass
 41. Bayad
 42. Sperry
@@ -98,7 +98,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 65. LRT Lines 1 to 2
 66. Prisuhan sa mga Abusado
 67. Habayabas
-68. People's Park in DC
+68. People's Park in Davao City
 69. Ang mga Alamat
 70. UST Manila
 71. MRT Lines 1 to 3 and MRT Line 7
