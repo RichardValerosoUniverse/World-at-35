@@ -63,7 +63,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 28. Municipality Of Santa Cruz
 29. Manila City
 30. Levi's
-31. Maya
+31. Visa
 32. Night Walking in Baganga
 33. Singapore Airlines Krisflyer Miles
 34. Richard Madriñan Valeroso
