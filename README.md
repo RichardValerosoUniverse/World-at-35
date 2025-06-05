@@ -124,7 +124,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 91. Bayad
 92. Gift Certificate
 93. TwitterPay
-94. Other E-Wallet Mode of Payment
+94. Sodexo
 95. Instagram
 96. Eye of the Tiger
 97. Lazada Pay
