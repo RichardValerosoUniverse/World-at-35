@@ -1,4 +1,4 @@
-GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is a  platform of hardware and software in one is exclusive on its own by default. 🤣
+iGitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is a  platform of hardware and software in one is exclusive on its own by default. 🤣
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -119,7 +119,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 86. Philippine National Railways
 87. Alamat ng Durian
 88. Instagram
-89. Isum
+89. Isum San Antonio de Padua
 90. Indian Killahs
 91. Indonesia
 92. Germañan Killahs
