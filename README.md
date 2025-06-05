@@ -145,9 +145,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 111. Davao City Bypass Project
 112. D' Japanese Tunnel Family Resort and Restaurant
 113. Germañan Killahs
-114. Immaculate Conception Boys (School)
-115. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-116. The State of Vatican City 
+114. DFA MANILA
+115. Immaculate Conception Boys (School)
+116. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+117. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
