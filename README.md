@@ -127,11 +127,11 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 94. Other E-Wallet Mode of Payment
 95. Instagram
 96. Eye of the Tiger
-97. .
-98. .
-99. .
-100. .
-101. .
+97. Lazada Pay
+98. Paypal
+99. ApplePay
+100. Mansanitas
+101. Mansanas
 102. Simbang Baclaran in Parañaque City
 103. GKK San Antonio de Padua
 104. Indian Killahs
