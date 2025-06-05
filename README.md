@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spanish Blood
 2. DDS (Davao del Sur)
-3. STI Boys (School)
+3. STI Davao Boys (School)
 4. Universe Boulevard
 5. Scout Madriñan
 6. World MasterCard
