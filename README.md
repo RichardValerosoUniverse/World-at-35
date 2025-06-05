@@ -54,7 +54,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 19. Valeroso City 1111
 20. Night & Day Walking in Davao City
 21. Korea
-22. Malay
+22. SMART
 23. Franciscos
 24. Ateneo Boys (School)
 25. Sony Corporation
@@ -73,14 +73,14 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 38. SM Advantage
 39. Cubao, QC
 40. Carabao Greenland Grass
-41. Bayad
+41. Talkn'text 0910
 42. Sperry
 43. JCB
 44. Ayala Rewards Circle
 45. Qatar
 47. Bureau of Internal Revenue Philippines
 48. Thailand
-49. Micronesia
+49. DITO
 50. AMEX
 51. Hugas Plato Department 
 53. Department Of Health Philippines
