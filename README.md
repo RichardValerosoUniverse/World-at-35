@@ -89,7 +89,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 56. AirAsia Rewards
 57. City Hall Of Davao
 58. Place to stay
-59. Place Of My Own
+59. Globe Platinum & Duo
 60. Crematorium
 61. San Juan City,MM
 62. Davao Coastal Road
