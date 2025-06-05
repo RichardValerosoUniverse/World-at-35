@@ -83,7 +83,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 49. DITO
 50. AMEX
 51. Hugas Plato Department 
-53. Department Of Health Philippines
+53. Department Of Health Davao
 54. MDC Suki Card
 55. Psychiatric Wards
 56. AirAsia Rewards
