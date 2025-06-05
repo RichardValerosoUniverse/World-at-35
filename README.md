@@ -81,7 +81,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 46. Qatar
 47. Bureau of Internal Revenue Philippines
 48. Thailand
-49. DITO
+49. Dito Telecommunity Telco
 50. AMEX
 51. Hugas Plato Department 
 53. Department Of Health Davao
