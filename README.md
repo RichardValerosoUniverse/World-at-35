@@ -122,15 +122,16 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 89. InstaPay
 90. ShopeePay
 91. Bayad
-92. 
-93. Instagram
-94. GKK San Antonio de Padua
-95. Indian Killahs
-96. Indonesia
-97. Germañan Killahs
-98. Immaculate Conception Boys (School)
-99. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-100. The State of Vatican City 
+92. TwitterPay
+93. 
+94. Instagram
+95. GKK San Antonio de Padua
+96. Indian Killahs
+97. Indonesia
+98. Germañan Killahs
+99. Immaculate Conception Boys (School)
+100. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+101. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
