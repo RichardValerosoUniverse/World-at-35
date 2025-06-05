@@ -44,7 +44,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 9. World Elite MasterCard
 10. Like This
 11. Alcatraz
-12. The Valeroso City
+12. The Valeroso City 8000
 13. Bayside Village
 14. Bonifacio Global City
 15. Mango Quality
