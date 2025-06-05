@@ -22,7 +22,7 @@ Definitely, Myself of mine deserves the very best of both or triple or quadruple
 Myself of mine has had Pure Spanish blood with a pure spoken and written Visayan language, majoring in Spoken & written Tagalog (Filipino) Language and, minoring in Philippine, United States (US), & British English both in spoken and written. I'm always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
 Basically, Myself of mine is digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
-JCBs, bancnet, World Elite Mastercard, Discover, AMEX and the like and a lot more...
+JCBs, bancnet, World Elite Mastercard, Discover, UnionPay,  AMEX and the like and a lot more...
 
 With all of these, Myself of mine is still at myself of mine's greatest sanity.
 Myself of mine is now known as 🤣: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and Myself of mine is never  gonna be ever fooled into believing something
