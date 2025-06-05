@@ -119,7 +119,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 86. Philippine National Railways
 87. Alamat ng Durian
 88. Instagram
-89. Isum San Antonio de Padua
+89. GKK San Antonio de Padua
 90. Indian Killahs
 91. Indonesia
 92. Germañan Killahs
