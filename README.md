@@ -72,12 +72,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 37. Makati City
 38. SM Advantage Card
 39. Cubao, QC
-40. Carabao Grass
-41. Talkn'text 0910
-42. Sperry
-43. JCB
-44. Ayala Rewards Circle
-45. Qatar
+40. Karada Gift Certificate
+41. Carabao Grass
+42. Talkn'text 0910
+43. Sperry
+44. JCB
+45. Ayala Rewards Circle
+46. Qatar
 47. Bureau of Internal Revenue Philippines
 48. Thailand
 49. DITO
