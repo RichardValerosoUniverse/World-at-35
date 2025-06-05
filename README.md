@@ -123,7 +123,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 90. ShopeePay
 91. Bayad
 92. TwitterPay
-93. 
+93. Other E-Wallet Mode of Payment
 94. Instagram
 95. GKK San Antonio de Padua
 96. Indian Killahs
