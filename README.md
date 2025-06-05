@@ -45,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 10. Like This
 11. Alcatraz
 12. The Valeroso City 8000
-13. Bayside Village
+13. Bayside Village in Lanang
 14. Bonifacio Global City
 15. Mango Quality
 16. SPMC
@@ -115,7 +115,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 82. San Pedro Cathedral Davao
 83. Metro Manila Subway
 84. Santa Ana Sea Walls
-85. Rizal Park
+85. Rizal Park in Davao City
 86. Philippine National Railways
 87. Alamat ng Durian
 88. Instagram
