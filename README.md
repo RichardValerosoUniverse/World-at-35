@@ -45,7 +45,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 10. Like This
 11. Alcatraz
 12. The Valeroso City 8000
-13. Bayside Village in Lanang
+13. Bayside Village Subdivision in Lanang
 14. Bonifacio Global City
 15. Mango Quality
 16. SPMC
