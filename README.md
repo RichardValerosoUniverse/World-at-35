@@ -48,7 +48,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 13. Bayside Village Subdivision in Lanang
 14. Bonifacio Global City
 15. Mango Quality
-16. SPMC
+16. Southern Philippines Medical Center
 17. Diego
 18. @ValerosoRichard    
 19. Valeroso City 1111
@@ -70,9 +70,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
 36. @RichardValerosoUniverse
 37. Makati City
-38. SM Advantage
+38. SM Advantage Card
 39. Cubao, QC
-40. Carabao Greenland Grass
+40. Carabao Grass
 41. Talkn'text 0910
 42. Sperry
 43. JCB
