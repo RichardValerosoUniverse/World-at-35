@@ -58,7 +58,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 23. Franciscos
 24. Ateneo Boys (School)
 25. CWC
-26. Veterinarians
+26. Cebu Pacific
 27. MicrosoftAITour
 28. Municipality Of Santa Cruz
 29. Manila City
