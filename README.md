@@ -131,13 +131,14 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 98. .
 99. .
 100. .
-101. GKK San Antonio de Padua
-102. Indian Killahs
-103. Indonesia
-104. Germañan Killahs
-105. Immaculate Conception Boys (School)
-106. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-107. The State of Vatican City 
+101. .
+102. GKK San Antonio de Padua
+103. Indian Killahs
+104. Indonesia
+105. Germañan Killahs
+106. Immaculate Conception Boys (School)
+107. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+108. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
