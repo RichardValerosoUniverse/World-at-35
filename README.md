@@ -137,10 +137,12 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 103. GKK San Antonio de Padua
 104. Indian Killahs
 105. Indonesia
-106. Germañan Killahs
-107. Immaculate Conception Boys (School)
-108. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-109. The State of Vatican City 
+106. Davao City Bypass Project
+107. D' Japanese Tunnel Family Resort and Restaurant
+108. Germañan Killahs
+109. Immaculate Conception Boys (School)
+110. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+111. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
