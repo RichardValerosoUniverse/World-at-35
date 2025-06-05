@@ -88,7 +88,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 55. Psychiatric Wards
 56. AirAsia Rewards
 57. City Hall Of Davao
-58. Place to stay
+58. UnionPay
 59. Globe Platinum & Duo
 60. Crematorium
 61. San Juan City,MM
