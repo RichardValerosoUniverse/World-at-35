@@ -133,22 +133,23 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 99. Sodexo Gift Certificate
 100. Instagram
 101. Eye of the Tiger
-102. Lazada Pay
-103. Paypal
-104. ApplePay
-105. Mansanitas
-106. Palawan Suki Card
-107. Simbang Baclaran in Parañaque City
-108. GKK San Antonio de Padua
-109. Indian Killahs
-110. Indonesia
-111. Davao City Bypass Project
-112. D' Japanese Tunnel Family Resort and Restaurant
-113. Germañan Killahs
-114. DFA MANILA
-115. Immaculate Conception Boys (School)
-116. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-117. The State of Vatican City 
+102. Timex Watch
+103. Lazada Pay
+104. Paypal
+105. ApplePay
+106. Mansanitas
+107. Palawan Suki Card
+108. Simbang Baclaran in Parañaque City
+109. GKK San Antonio de Padua
+110. Indian Killahs
+111. Indonesia
+112. Davao City Bypass Project
+113. D' Japanese Tunnel Family Resort and Restaurant
+114. Germañan Killahs
+115. DFA MANILA
+116. Immaculate Conception Boys (School)
+117. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+118. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
