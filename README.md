@@ -132,7 +132,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 99. .
 100. .
 101. .
-102. .
+102. Simbang Baclaran in Parañaque City
 103. GKK San Antonio de Padua
 104. Indian Killahs
 105. Indonesia
