@@ -54,7 +54,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 19. Valeroso City 1111
 20. Night & Day Walking in Davao City
 21. Korea
-22. SMART
+22. Smart Communications Telco
 23. Franciscos
 24. Ateneo Boys (School)
 25. Sony Corporation
