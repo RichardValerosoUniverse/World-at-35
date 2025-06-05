@@ -131,7 +131,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 98. Paypal
 99. ApplePay
 100. Mansanitas
-101. Mansanas
+101. Palawan Suki Card
 102. Simbang Baclaran in Parañaque City
 103. GKK San Antonio de Padua
 104. Indian Killahs
