@@ -126,13 +126,18 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 93. TwitterPay
 94. Other E-Wallet Mode of Payment
 95. Instagram
-96. GKK San Antonio de Padua
-97. Indian Killahs
-98. Indonesia
-99. Germañan Killahs
-100. Immaculate Conception Boys (School)
-101. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-102. The State of Vatican City 
+96. .
+97. .
+98. .
+99. .
+100. .
+101. GKK San Antonio de Padua
+102. Indian Killahs
+103. Indonesia
+104. Germañan Killahs
+105. Immaculate Conception Boys (School)
+106. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+107. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
