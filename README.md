@@ -67,7 +67,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 32. Night Walking in Baganga
 33. Singapore Airlines Krisflyer Miles
 34. Richard Madriñan Valeroso
-35. Richard Madriñan Valeroso Territory, Kingdom and Nation
+35. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
 36. @RichardValerosoUniverse
 37. Makati City
 38. SM Advantage
@@ -93,7 +93,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 60. Crematorium
 61. San Juan City,MM
 62. Davao Coastal Road
-63. Anak Ng Pulis Boys (Annapolis)
+63. Anak Ng Pulis Boys (Annapolis Street)
 64. Philippine Airlines
 65. LRT Lines 1 to 2
 66. Prisuhan sa mga Abusado
