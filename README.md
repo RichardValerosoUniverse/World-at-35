@@ -99,7 +99,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 66. Prisuhan sa mga Abusado
 67. Habayabas
 68. People's Park in Davao City
-69. Ang mga Alamat
+69. Discover
 70. UST Manila
 71. MRT Lines 1 to 3 and MRT Line 7
 72. Sangguniang Panglungsod
@@ -117,7 +117,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 84. Santa Ana Sea Walls
 85. Rizal Park
 86. Philippine National Railways
-87. Island Garden City Of Sperm Cell
+87. Alamat ng Durian
 88. Instagram
 89. Isum
 90. Indian Killahs
