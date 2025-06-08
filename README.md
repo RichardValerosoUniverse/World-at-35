@@ -135,7 +135,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 101. Eye of the Tiger
 102. Timex Watch
 103. Lazada Pay
-104. Paypal Philippines
+104. PayPal Philippines
 105. ApplePay
 106. Mansanitas
 107. Palawan Suki Card
