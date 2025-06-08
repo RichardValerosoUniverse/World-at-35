@@ -92,7 +92,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 58. UnionPay
 59. Globe Platinum & Duo
 60. Crematorium
-61. San Juan City,MM
+61. Greenhills Shopping Center in San Juan City
 62. Davao Coastal Road
 63. Anak Ng Pulis Boys (Annapolis Street)
 64. Philippine Airlines
