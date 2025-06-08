@@ -71,7 +71,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 36. @RichardValerosoUniverse
 37. Makati City
 38. SM Advantage Card
-39. Cubao, QC
+39. Smart Araneta Coliseum
 40. Karada Gift Certificate
 41. Carabao Grass
 42. Talkn'text 0910
