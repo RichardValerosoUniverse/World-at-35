@@ -1,4 +1,4 @@
-X is what's happening and what people are talking about right now.
+X by Psychiatrist Richard Madriñan Valeroso,LMT,MD is what's happening and what people are talking about right now.
 It's where news breaks and communities converge.
 And it's all powered by open source, made by a team of amazing humans.
 
