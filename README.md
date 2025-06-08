@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spanish Blood & Spanish DNA
 2. Province Of Davao del Sur (Province Of DDS)
-3. STI Davao Boys (School)
+3. STI Davao-based Boys (School)
 4. Universe Boulevard
 5. Scout Madriñan
 6. World MasterCard
@@ -55,7 +55,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 20. Night & Day Walking in Davao City
 21. Korea
 22. Smart Communications Telco
-23. Franciscos
+23. Francisco
 24. Ateneo Boys (School)
 25. Sony Corporation
 26. Cebu Pacific
