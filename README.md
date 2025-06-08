@@ -105,7 +105,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 71. MRT Lines 1 to 3 and MRT Line 7
 72. Sangguniang Panglungsod
 73. The Cremationist
-74. PH Expressways
+74. DFA MANILA
 75. Bangko Sentral ng Pilipinas in Davao City
 76. AirAsia Rewards
 77. Mandaluyong Loob Mental Asylum
@@ -146,10 +146,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 112. Davao City Bypass Project
 113. D' Japanese Tunnel Family Resort and Restaurant
 114. Germañan Killahs
-115. DFA MANILA
-116. Immaculate Conception Boys (School)
-117. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-118. The State of Vatican City 
+115. Immaculate Conception Boys (School)
+116. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+117. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
