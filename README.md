@@ -60,7 +60,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 25. Sony Corporation
 26. Cebu Pacific
 27. MicrosoftAITour
-28. Manila City
+28. Quiapo Church in Manila City
 29. Las Piñas City
 30. Levi's
 31. Visa
