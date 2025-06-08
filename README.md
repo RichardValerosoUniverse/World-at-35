@@ -133,7 +133,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 99. Sodexo Gift Certificate
 100. Instagram
 101. Eye of the Tiger
-102. Timex Watch
+102. There Is Always Life®
 103. Lazada Pay
 104. PayPal Philippines
 105. ApplePay
