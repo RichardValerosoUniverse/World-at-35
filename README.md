@@ -74,7 +74,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 39. Smart Araneta Coliseum
 40. Karada Gift Certificate
 41. Carabao Grass
-42. Talkn'text 0910
+42. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
 43. Sperry
 44. JCB
 45. Ayala Rewards Circle
