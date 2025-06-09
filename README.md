@@ -134,7 +134,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 100. Instagram
 101. Eyes of the Tiger, Eagle and Anaconda/Viper/Python
 102. There Is Always Life®
-103. Lazada Pay
+103. Glorietta in Makati City
 104. PayPal Philippines
 105. ApplePay
 106. Mansanitas
