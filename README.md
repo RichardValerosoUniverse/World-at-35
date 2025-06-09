@@ -78,9 +78,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 43. Sperry
 44. JCB
 45. Ayala Rewards Circle
-46. Qatar
+46. Yale Street in Cubao
 47. Bureau of Internal Revenue Philippines
-48. Thailand
+48. EDSA
 49. Dito Telecommunity Telco
 50. AMEX
 51. The Greatest Kitchen Steward 
