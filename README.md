@@ -53,7 +53,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 18. Santa Barbara Villas 1 in San Mateo, Rizal  
 19. Valeroso City 1111
 20. Night & Day Walking in Davao City
-21. 
+21. Tagaytay City
 22. Richard Valeroso Universe on Spotify
 23. Francisco
 24. Ateneo College Boys (School)
@@ -128,7 +128,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 94. Facebook Pay
 95. Medicard HMO
 96. INTELLICARE HMO
-97. 
+97. Santo Rosario Parish in Toril
 98. GO REWARDS CARD
 99. Sodexo Gift Certificate
 100. Instagram
