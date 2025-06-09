@@ -122,7 +122,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 88. GrabPay
 89. InstaPay
 90. ShopeePay
-91. Bayad
+91. MasterCard
 92. MDC Gift Certificate
 93. TwitterPay
 94. Facebook Pay
@@ -130,8 +130,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 96. INTELLICARE HMO
 97. Santo Rosario Parish in Toril
 98. GO REWARDS CARD
-99. Sodexo Gift Certificate
-100. Instagram
+99. City Of Reality
+100. Instagram Philippines
 101. Eyes of the Tiger, Eagle and Anaconda/Viper/Python
 102. There Is Always Life®
 103. Ayala Malls Glorietta in Makati City
