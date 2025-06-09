@@ -68,7 +68,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 33. Singapore Airlines Krisflyer Miles
 34. New Era Cap Company Limited
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
-36. @RichardValerosoUniverse
+36. The Marikina Clock Tower Arch
 37. Duck farming in the municipality of Pateros,MM
 38. SM Advantage Card
 39. Smart Araneta Coliseum
