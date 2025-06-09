@@ -37,7 +37,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 2. Province Of Davao del Sur (Province Of DDS)
 3. STI College Davao-based Boys (School)
 4. Universe Boulevard
-5. Scout Madriñan
+5. Scout Madriñan in QC
 6. World MasterCard
 7. Washingtoñans
 8. F designed by W
