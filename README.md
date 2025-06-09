@@ -103,7 +103,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 69. Discover
 70. UST Manila
 71. MRT Lines 1 to 3 and MRT Line 7
-72. Sangguniang Panglungsod
+72. 
 73. The Cremationist
 74. DFA MANILA
 75. Bangko Sentral ng Pilipinas in Davao City
