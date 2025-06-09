@@ -136,7 +136,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 102. There Is Always Life®
 103. Ayala Malls Glorietta in Makati City
 104. PayPal Philippines
-105. ApplePay
+105. Eastwood City
 106. Mansanitas
 107. Palawan Suki Card
 108. Simbang Baclaran in Parañaque City
