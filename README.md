@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spanish Blood & Spanish DNA
 2. Province Of Davao del Sur (Province Of DDS)
-3. STI College Davao-based Boys (School)
+3. 
 4. Universe Boulevard
 5. Scout Madriñan in QC
 6. World MasterCard
@@ -49,7 +49,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 14. Bonifacio Global City
 15. Mango Quality
 16. Southern Philippines Medical Center
-17. Diego
+17. 
 18. Santa Barbara Villas 1 in San Mateo, Rizal  
 19. Valeroso City 1111
 20. Night & Day Walking in Davao City
@@ -94,7 +94,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 60. Crematorium
 61. Greenhills Shopping Center in San Juan City
 62. Davao Coastal Road
-63. Anak Ng Pulis Boys (Annapolis Street)
+63. 
 64. Philippine Airlines
 65. LRT Lines 1 to 2
 66. Department Of Tourism Davao
@@ -144,9 +144,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 110. Indian Killahs
 111. QRPH
 112. Davao City Bypass Project
-113. D' Japanese Tunnel Family Resort and Restaurant
+113. 
 114. Germañan Killahs
-115. Immaculate Conception Boys (School)
+115. 
 116. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
 117. The State of Vatican City 
  👀 👁️ 👀 👁️ 
