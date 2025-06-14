@@ -124,7 +124,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 90. Davao International Airport
 91. MasterCard
 92. MDC Gift Certificate
-93. TwitterPay
+93. Twitter/X
 94. 
 95. 
 96. 
