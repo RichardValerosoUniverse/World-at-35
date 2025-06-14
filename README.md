@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spanish Blood & Spanish DNA
 2. Province Of Davao del Sur (Province Of DDS)
-3. 
+3. St. Luke's Medical Center in QC
 4. Universe Boulevard
 5. Scout Madriñan in QC
 6. World MasterCard
