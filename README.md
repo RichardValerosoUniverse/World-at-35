@@ -39,7 +39,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 4. Universe Boulevard
 5. Scout Madriñan in QC
 6. World MasterCard
-7. Washington Street, Davao City
+7. Washington Street, Davao City near San Pedro Cathedral 
 8. F designed by W
 9. World Elite MasterCard
 10. Like This
@@ -113,7 +113,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 79. GitHub
 80. Google Developers
 81. Facebook Profile 
-82. San Pedro Cathedral Davao
+82. 
 83. Metro Manila Subway
 84. Santa Ana Port Davao
 85. Rizal Park in Davao City
