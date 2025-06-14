@@ -47,7 +47,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 12. The Valeroso City 8000
 13. Bayside Village Subdivision in Lanang
 14. Bonifacio Global City
-15. Mango Quality
+15. 
 16. Southern Philippines Medical Center
 17. 
 18. Santa Barbara Villas 1 in San Mateo, Rizal  
@@ -66,10 +66,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 31. Visa
 32. Night Walking in Baganga
 33. Singapore Airlines Krisflyer Miles
-34. New Era Cap Company Limited
+34. 
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
 36. The Marikina Clock Tower Arch
-37. Duck farming in the municipality of Pateros,MM
+37. 
 38. SM Advantage Card
 39. Smart Araneta Coliseum
 40. Karada Gift Certificate
@@ -125,9 +125,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 91. MasterCard
 92. MDC Gift Certificate
 93. TwitterPay
-94. Facebook Pay
-95. Medicard HMO
-96. INTELLICARE HMO
+94. 
+95. 
+96. 
 97. Santo Rosario Parish in Toril
 98. GO REWARDS CARD
 99. City Of Reality
