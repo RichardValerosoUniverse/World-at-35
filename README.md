@@ -119,7 +119,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 85. Rizal Park in Davao City
 86. Philippine National Railways
 87. Alamat ng Durian
-88. GrabPay
+88. 
 89. InstaPay
 90. Davao International Airport
 91. MasterCard
