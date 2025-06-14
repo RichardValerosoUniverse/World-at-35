@@ -57,7 +57,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 22. Richard Valeroso Universe on Spotify
 23. Francisco
 24. Gcash & Maya
-25. Robinsons Lipa
+25. LBC branch in Robinsons Lipa
 26. Cebu Pacific
 27. MicrosoftAITour
 28. Quiapo Church in Manila City
