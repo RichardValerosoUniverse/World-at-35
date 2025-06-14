@@ -62,7 +62,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 27. MicrosoftAITour
 28. Quiapo Church in Manila City
 29. Alabang-Zapote Road in Las Piñas City
-30. Levi's
+30. 
 31. Visa
 32. Night Walking in Baganga
 33. Singapore Airlines Krisflyer Miles
@@ -75,7 +75,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 40. Karada Gift Certificate
 41. Roxas Avenue in Davao City
 42. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-43. Sperry
+43. 
 44. JCB
 45. Ayala Rewards Circle
 46. Yale Street in Cubao
