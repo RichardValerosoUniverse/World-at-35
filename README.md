@@ -69,13 +69,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 34. Angeles City
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
 36. The Marikina Clock Tower Arch
-37. 
+37. Mactan-Cebu International Airport
 38. SM Advantage Card
 39. Smart Araneta Coliseum
 40. Karada Gift Certificate
 41. Roxas Avenue in Davao City
 42. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-43. 
+43.Ninoy Aquino International Airport 
 44. JCB
 45. Ayala Rewards Circle
 46. Yale Street in Cubao
