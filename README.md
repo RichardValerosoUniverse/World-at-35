@@ -109,8 +109,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 75. Bangko Sentral ng Pilipinas in Davao City
 76. AirAsia Rewards
 77. Mandaluyong Loob Mental Asylum
-78. Infinity Spa in Metro Manila
-79. GitHub Developers
+78. 
+79. GitHub
 80. Google Developers
 81. Facebook Profile 
 82. San Pedro Cathedral Davao
