@@ -105,7 +105,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 71. MRT Lines 1 to 3 and MRT Line 7
 72. Mall Of Asia in Pasay City
 73. The Cremationist
-74. DFA MANILA
+74. DFA in Robinsons Magnolia, QC
 75. Bangko Sentral ng Pilipinas in Davao City
 76. AirAsia Rewards
 77. Mandaluyong Loob Mental Asylum
