@@ -50,7 +50,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 15. 
 16. Southern Philippines Medical Center
 17. 
-18. Santa Barbara Villas 1 in San Mateo, Rizal  
+18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 19. Valeroso City 1111
 20. Night & Day Walking in Davao City
 21. Tagaytay City
