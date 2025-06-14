@@ -49,7 +49,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 14. Bonifacio Global City
 15. Municipality of Santa Cruz, Province of DDS
 16. Southern Philippines Medical Center
-17. 
+17. Alabang Town Center in Muntinlupa City
 18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 19. Valeroso City 1111
 20. Night & Day Walking in Davao City
