@@ -39,7 +39,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 4. Universe Boulevard
 5. Scout Madriñan in QC
 6. World MasterCard
-7. Washingtoñans
+7. Washington Street, Davao City
 8. F designed by W
 9. World Elite MasterCard
 10. Like This
