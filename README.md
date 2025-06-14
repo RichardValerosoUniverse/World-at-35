@@ -62,7 +62,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 27. MicrosoftAITour
 28. Quiapo Church in Manila City
 29. Colours Town Center in Las Piñas City
-30. 
+30. Gateway Mall in QC
 31. Visa
 32. Night Walking in Baganga
 33. Singapore Airlines Krisflyer Miles
@@ -83,7 +83,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 48. EDSA
 49. Dito Telecommunity Telco
 50. AMEX
-51. The Greatest Kitchen Steward 
+51. Kitchen Steward Hall of Fame
 53. Department Of Health Davao
 54. MDC Suki Card
 55. Psychiatric Wards
