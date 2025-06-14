@@ -56,7 +56,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 21. Tagaytay City
 22. Richard Valeroso Universe on Spotify
 23. Francisco
-24. Gcash & Maya (Shared Financial Statements of assets and liabilities)
+24. Gcash & Maya (Shared Financial Statements of assets, liabilities and Net Worth)
 25. LBC branch in Robinsons Lipa
 26. Cebu Pacific
 27. MicrosoftAITour
