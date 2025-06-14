@@ -34,7 +34,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
 1. Spanish Blood & Spanish DNA
-2. Province Of Davao del Sur (Province Of DDS)
+2. Province of Davao Del Sur (Province of DDS)
 3. St. Luke's Medical Center in QC
 4. Universe Boulevard
 5. Scout Madriñan in QC
@@ -47,7 +47,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 12. The Valeroso City 8000
 13. Bayside Village Subdivision in Lanang
 14. Bonifacio Global City
-15. 
+15. Municipality of Santa Cruz, Province of DDS
 16. Southern Philippines Medical Center
 17. 
 18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
@@ -56,8 +56,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 21. Tagaytay City
 22. Richard Valeroso Universe on Spotify
 23. Francisco
-24. Ateneo College Boys (School)
-25. Sony Corporation
+24. 
+25. 
 26. Cebu Pacific
 27. MicrosoftAITour
 28. Quiapo Church in Manila City
@@ -109,11 +109,11 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 75. Bangko Sentral ng Pilipinas in Davao City
 76. AirAsia Rewards
 77. Mandaluyong Loob Mental Asylum
-78. 
+78. Facebook Pay
 79. GitHub
 80. Google Developers
 81. Facebook Profile 
-82. 
+82. Facebook Page
 83. Metro Manila Subway
 84. Santa Ana Port Davao
 85. Rizal Park in Davao City
