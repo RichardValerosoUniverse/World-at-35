@@ -56,7 +56,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 21. Tagaytay City
 22. Richard Valeroso Universe on Spotify
 23. Francisco
-24. 
+24. Gcash & Maya
 25. 
 26. Cebu Pacific
 27. MicrosoftAITour
