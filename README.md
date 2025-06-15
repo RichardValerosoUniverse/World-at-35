@@ -81,7 +81,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 46. Yale Street in Cubao
 47. Bureau of Internal Revenue Philippines
 48. EDSA
-49. Dito Telecommunity Telco
+49. Dito Telecommunity Prepaid SIM
 50. AMEX
 51. Kitchen Steward Hall of Fame
 53. Department Of Health Davao
