@@ -137,7 +137,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 103. Ayala Malls Glorietta in Makati City
 104. PayPal Philippines
 105. Eastwood City
-106. Mansanitas
+106. Alamat ng Mansanitas
 107. Palawan Suki Card
 108. Simbang Baclaran in Parañaque City
 109. GKK San Antonio de Padua
