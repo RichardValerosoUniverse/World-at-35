@@ -98,7 +98,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 64. Philippine Airlines
 65. LRT Lines 1 to 2
 66. Department Of Tourism Davao
-67. Habayabas
+67. Alamat ng Bayabas
 68. People's Park in Davao City
 69. Discover
 70. UST Manila
