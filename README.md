@@ -147,11 +147,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 113. 
 114. 
 115. 
-116.
-117. Indian Killahs
-118. Germany Killahs
-119. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-120. The State of Vatican City 
+116.Indian Killahs
+117. Germany Killahs
+118. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
+119. The State of Vatican City 
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
