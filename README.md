@@ -148,7 +148,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 113. 
 114. 
 115. Indian in Davao Killahs
-116. Germany in Davao Killahs
+116. German in Davao Killahs
 117. Kitchen Steward Hall of Fame
 118. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
 119. The State of Vatican City 
