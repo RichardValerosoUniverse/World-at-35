@@ -94,7 +94,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 60. Crematorium
 61. Greenhills Shopping Center in San Juan City
 62. Davao Coastal Road
-63. 
+63. Robinsons Place Manila
 64. Philippine Airlines
 65. LRT Lines 1 to 2
 66. Department Of Tourism Davao
