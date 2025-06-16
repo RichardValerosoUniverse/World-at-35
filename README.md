@@ -75,7 +75,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 40. Karada Gift Certificate
 41. Roxas Avenue in Davao City
 42. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-43.Ninoy Aquino International Airport 
+43. Ninoy Aquino International Airport 
 44. JCB
 45. Ayala Rewards Circle
 46. Yale Street in Cubao
