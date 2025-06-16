@@ -141,15 +141,15 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 107. Palawan Suki Card
 108. Simbang Baclaran in Parañaque City
 109. GKK San Antonio de Padua
-110. Indian Killahs
+110. 
 111. QRPH
 112. Davao City Bypass Project
 113. 
-114. Germañan Killahs
+114. 
 115. 
 116.
-117.
-118.
+117. Indian Killahs
+118. Germany Killahs
 119. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
 120. The State of Vatican City 
  👀 👁️ 👀 👁️ 
