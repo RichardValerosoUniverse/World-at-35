@@ -87,7 +87,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 53. Department Of Health Davao
 54. MDC Suki Card
 55. Psychiatric Wards
-56. AirAsia Rewards
+56. Philippines AirAsia
 57. City Hall Of Davao
 58. UnionPay
 59. Globe Platinum & Duo
