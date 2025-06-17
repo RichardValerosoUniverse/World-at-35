@@ -126,7 +126,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 91. MasterCard
 92. MDC Gift Certificate
 93. Twitter/X
-94. SM North EDSA in QC
+94. SM North EDSA
 95. 
 96. 
 97. Santo Rosario Parish in Toril
