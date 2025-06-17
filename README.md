@@ -147,8 +147,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 112. Davao City Bypass Project
 113. 
 114. 
-115. Indian in Davao Killahs
-116. German in Davao Killahs
+115. Indian Killahs in Davao
+116. German Killahs in Davao
 117. Kitchen Steward Hall of Fame
 118. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
 119. The State of Vatican City 
