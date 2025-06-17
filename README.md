@@ -62,7 +62,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 27. MicrosoftAITour
 28. Quiapo Church in Manila City
 29. Colours Town Center in Las Piñas City
-30. Ali Mall/SM Cubao/Gateway Mall/New Farmers Plaza in Araneta City
+30. Ali Mall/SM Cubao/Gateway Mall/New Farmers Plaza/Shopwise Arcade/Super 8 in Araneta City
 31. Visa
 32. Night Walking in Baganga
 33. Singapore Airlines Krisflyer Miles
