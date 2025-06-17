@@ -81,7 +81,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 46. Yale Street in Cubao
 47. Bureau of Internal Revenue Philippines
 48. EDSA
-49. Dito Telecommunity Prepaid SIM
+49. DITO Telecommunity Prepaid SIM
 50. AMEX
 51. Manolo Fortich, Province of Bukidnon
 52. SM Megamall in Mandaluyong City
