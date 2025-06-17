@@ -84,7 +84,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 49. Dito Telecommunity Prepaid SIM
 50. AMEX
 51. Manolo Fortich, Province of Bukidnon
-52. 
+52. SM Megamall in Mandaluyong City
 53. Department Of Health Davao
 54. MDC Suki Card
 55. Psychiatric Wards
