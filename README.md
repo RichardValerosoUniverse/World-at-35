@@ -146,12 +146,12 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 111. QRPH
 112. Davao City Bypass Project
 113. 
-114. 
+114. The State Of Vatican City
 115. Indian Killahs in Davao
 116. German Killahs in Davao
-117. Kitchen Steward Hall of Fame
-118. Southern Philippines Medical Center-Institute Of Psychiatric & Behavioral Medicine (SPMC-IPBM)
-119. The State of Vatican City 
+117. 
+118. Kitchen Steward Hall Of Fame
+119. Davao City Mental Hospital (formerly SPMC-IPBM)
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
