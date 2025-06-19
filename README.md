@@ -146,10 +146,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 111. QRPH
 112. Davao City Bypass Project
 113. 
-114. The State Of Vatican City
+114. 
 115. Indian Killahs in Davao
 116. German Killahs in Davao
-117. 
+117. The State Of Vatican City
 118. Kitchen Steward Hall Of Fame
 119. Davao City Mental Hospital (formerly SPMC-IPBM)
  👀 👁️ 👀 👁️ 
