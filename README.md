@@ -143,13 +143,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 108. Simbang Baclaran in Parañaque City
 109. GKK San Antonio de Padua
 110. 
-111. QRPH
-112. Davao City Bypass Project
-113. 
-114. The State Of Vatican City
+111. 
+112. 
+113. QRPH
+114. Davao City Bypass Project
 115. Indian Killahs in Davao
 116. German Killahs in Davao
-117. 
+117. The State Of Vatican City
 118. Kitchen Steward Hall Of Fame
 119. Davao City Mental Hospital (formerly SPMC-IPBM)
  👀 👁️ 👀 👁️ 
