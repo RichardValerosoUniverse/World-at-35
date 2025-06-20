@@ -127,7 +127,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 92. MDC Gift Certificate
 93. Twitter/X
 94. SM North EDSA
-95. Brokenshire Hospital 
+95. Brokenshire Medical Center
 96. 
 97. Santo Rosario Parish in Toril
 98. GO REWARDS CARD
