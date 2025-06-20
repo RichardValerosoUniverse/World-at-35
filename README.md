@@ -98,7 +98,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 63. Robinsons Place Manila
 64. Philippine Airlines
 65. LRT Lines 1 to 2
-66. Davao Doctor's Hospital
+66. Davao Doctors Hospital
 67. Alamat ng Bayabas
 68. People's Park in Davao City
 69. Discover
@@ -127,7 +127,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 92. MDC Gift Certificate
 93. Twitter/X
 94. SM North EDSA
-95. 
+95. Brokenshire Hospital 
 96. 
 97. Santo Rosario Parish in Toril
 98. GO REWARDS CARD
