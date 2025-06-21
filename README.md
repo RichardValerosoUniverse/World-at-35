@@ -145,7 +145,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 110. Davao Mediquest Hospital
 111. QRPH
 112. Davao City Bypass Project
-113. 
+113. NCCC Mall in Maa Davao City
 114. 
 115. Indian Killahs in Davao
 116. German Killahs in Davao
