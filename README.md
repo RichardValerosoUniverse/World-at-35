@@ -142,7 +142,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 107. Palawan Suki Card
 108. Simbang Baclaran in Parañaque City
 109. GKK San Antonio de Padua
-110. 
+110. Davao Mediquest Hospital
 111. QRPH
 112. Davao City Bypass Project
 113. 
