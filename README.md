@@ -46,7 +46,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 11. Alcatraz, California, USA
 12. The Valeroso City 8000
 13. Bayside Village Subdivision in Lanang
-14. Bonifacio Global City
+14. 
 15. Municipality of Santa Cruz, Province of DDS
 16. Southern Philippines Medical Center
 17. Alabang Town Center in Muntinlupa City
