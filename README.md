@@ -64,7 +64,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 29. Colours Town Center in Las Piñas City
 30. Araneta City
 31. Visa
-32. Night Walking in Baganga
+32. Night Walking in Baganga, Davao Oriental
 33. Singapore Airlines Krisflyer Miles
 34. Angeles City
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
