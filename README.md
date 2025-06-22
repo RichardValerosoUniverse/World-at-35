@@ -136,7 +136,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 101. Aurora Boulevard in Cubao
 102. There Is Always Life®
 103. Ayala Malls Glorietta in Makati City
-104. 
+104. Bahay Tikiman in Parañaque City
 105. Eastwood City
 106. Alamat ng Ligwan
 107. Palawan Suki Card
