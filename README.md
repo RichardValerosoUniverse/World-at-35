@@ -59,7 +59,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 24. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within them since they are fraudsters and have financial lapses towards their consumers for the most part; They are bullshit and with air of "mango quality" features. 🎗️)
 25. Robinsons Lipa
 26. Cebu Pacific
-27. Sunmark Building in Toril
+27. Sunmark Building in Saavedra Street, Toril
 28. Quiapo Church in Manila City
 29. Colours Town Center in Las Piñas City
 30. Araneta City
@@ -133,7 +133,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 98. GO REWARDS CARD
 99. City Of Reality
 100. Instagram Philippines
-101. Aurora Boulevard in Cubao
+101. Aurora Boulevard in QC
 102. There Is Always Life®
 103. Ayala Malls Glorietta in Makati City
 104. Bahay Tikiman in Parañaque City
