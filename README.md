@@ -39,7 +39,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 4. Universe Boulevard, San Miguel de Valero, Spain
 5. Scout Madriñan in QC
 6. World MasterCard
-7. Washington Street, Davao City near San Pedro Cathedral 
+7. 
 8. Fahrenheit Cafe in QC
 9. World Elite MasterCard
 10. Like This
