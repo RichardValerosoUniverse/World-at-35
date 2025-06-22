@@ -39,7 +39,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 4. Universe Boulevard, San Miguel de Valero, Spain
 5. Scout Madriñan in QC
 6. World MasterCard
-7. 
+7. City Hall Drive Davao City
 8. Fahrenheit Cafe in QC
 9. World Elite MasterCard
 10. Like This
@@ -89,7 +89,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 54. MDC Suki Card
 55. Psychiatric Wards in Davao City Mental Hospital Corporation
 56. Philippines AirAsia
-57. City Hall Of Davao
+57. 
 58. UnionPay
 59. Globe Platinum & Duo
 60. Crematorium
