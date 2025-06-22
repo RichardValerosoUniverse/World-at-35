@@ -79,7 +79,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 44. JCB
 45. Ayala Rewards Circle
 46. Yale Street in Cubao
-47. Bureau of Internal Revenue Philippines
+47. Bureau of Internal Revenue Davao Region
 48. EDSA
 49. DITO Telecommunity Prepaid SIM
 50. AMEX
