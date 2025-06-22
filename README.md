@@ -147,8 +147,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 112. Davao City Bypass Project
 113. NCCC Mall in Maa Davao City
 114. China Town Davao City
-115. Indian Killahs in Davao
-116. German Killahs in Davao
+115. India Boys Killahs in Davao City
+116. Germany Boys Killahs in Davao City
 117. The State Of Vatican City
 118. Kitchen Steward Hall Of Fame
 119. Davao City Mental Hospital (formerly SPMC-IPBM)
