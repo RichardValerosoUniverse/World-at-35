@@ -40,7 +40,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 5. Scout Madriñan in QC
 6. World MasterCard
 7. Washington Street, Davao City near San Pedro Cathedral 
-8. Fahrenheit in QC
+8. Fahrenheit Cafe in QC
 9. World Elite MasterCard
 10. Like This
 11. Alcatraz, California, USA
