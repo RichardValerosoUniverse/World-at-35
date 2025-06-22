@@ -87,7 +87,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 52. SM Megamall in Mandaluyong City
 53. Department Of Health Davao
 54. MDC Suki Card
-55. Psychiatric Wards
+55. Psychiatric Wards in Davao City Mental Hospital Corporation
 56. Philippines AirAsia
 57. City Hall Of Davao
 58. UnionPay
@@ -138,7 +138,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 103. Ayala Malls Glorietta in Makati City
 104. Bahay Tikiman in Parañaque City
 105. Eastwood City
-106. Alamat ng Ligwan
+106. Alamat ng Pantat
 107. Palawan Suki Card
 108. Simbang Baclaran in Parañaque City
 109. GKK San Antonio de Padua in Isum
