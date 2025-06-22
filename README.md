@@ -59,7 +59,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 24. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within them since they are fraudsters and have financial lapses towards their consumers for the most part; They are bullshit and with air of "mango quality" features. 🎗️)
 25. Robinsons Lipa
 26. Cebu Pacific
-27. Sunmark Building in Toril
+27. Sunmark Building in Saavedra Street, Toril
 28. Quiapo Church in Manila City
 29. Colours Town Center in Las Piñas City
 30. Araneta City
@@ -81,7 +81,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 46. Yale Street in Cubao
 47. Bureau of Internal Revenue Davao Region
 48. EDSA
-49. DITO Telecommunity Prepaid SIM
+49. DITO Telecommunity Prepaid SIM Card
 50. AMEX
 51. Manolo Fortich, Province of Bukidnon
 52. SM Megamall in Mandaluyong City
@@ -110,7 +110,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 75. Bangko Sentral ng Pilipinas in Davao City
 76. Office of the President of the Republic of the Philippines
 77. Mandaluyong Loob Mental Hospital
-78. Dimple's Lechon House in Toril
+78. Dimple's Lechon House in Agton Street, Toril
 79. GitHub
 80. Google Developers
 81. Facebook Profile 
