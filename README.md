@@ -43,7 +43,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 8. F designed by W
 9. World Elite MasterCard
 10. Like This
-11. Alcatraz
+11. Alcatraz, California, USA
 12. The Valeroso City 8000
 13. Bayside Village Subdivision in Lanang
 14. Bonifacio Global City
@@ -77,7 +77,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 42. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
 43. Ninoy Aquino International Airport 
 44. JCB
-45. Ayala Rewards Circle
+45. Postal Office in Toril
 46. Yale Street in Cubao
 47. Bureau of Internal Revenue Davao Region
 48. EDSA
@@ -102,7 +102,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 67. Alamat ng Bayabas
 68. People's Park in Davao City
 69. Discover
-70. UST Manila
+70. UST in Manila City
 71. MRT Lines 1 to 3 and MRT Line 7
 72. Mall Of Asia in Pasay City
 73. The Cremationist
