@@ -36,7 +36,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 1. Spanish Blood & Spanish DNA
 2. Province of Davao Del Sur (Province of DDS)
 3. St. Luke's Medical Center in QC
-4. Universe Boulevard
+4. Universe Boulevard, San Miguel de Valero, Spain
 5. Scout Madriñan in QC
 6. World MasterCard
 7. Washington Street, Davao City near San Pedro Cathedral 
@@ -59,7 +59,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 24. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within them since they are fraudsters and have financial lapses towards their consumers for the most part; They are bullshit and with air of "mango quality" features. 🎗️)
 25. Robinsons Lipa
 26. Cebu Pacific
-27. MicrosoftAITour
+27. Sunmark Building in Toril
 28. Quiapo Church in Manila City
 29. Colours Town Center in Las Piñas City
 30. Araneta City
