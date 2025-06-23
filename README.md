@@ -80,7 +80,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 45. Postal Office in Toril
 46. Yale Street in Cubao
 47. Bureau of Internal Revenue Davao Region
-48. EDSA
+48. 659 EDSA
 49. DITO Telecommunity Prepaid SIM
 50. AMEX
 51. Manolo Fortich, Province of Bukidnon
