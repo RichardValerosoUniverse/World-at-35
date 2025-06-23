@@ -95,7 +95,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 60. Crematorium
 61. Greenhills Shopping Center in San Juan City,MM
 62. Gaisano Center in Bolton Street in Davao City
-63. Robinsons Place Manila
+63. 
 64. Philippine Airlines
 65. LRT Lines 1 to 2
 66. Davao Doctors Hospital
