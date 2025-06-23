@@ -39,7 +39,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 4. Universe Boulevard, San Miguel de Valero, Spain
 5. Scout Madriñan in QC
 6. World MasterCard
-7. Connecticut Street in San Juan City,MM
+7. Connecticut Street in San Juan City, Metro Manila
 8. Fahrenheit Cafe in QC
 9. World Elite MasterCard
 10. Like This
@@ -64,7 +64,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 29. Colours Town Center in Las Piñas City
 30. Araneta City
 31. Visa
-32. Night Walking in Baganga, Davao Oriental
+32. Night Walking in Baganga, Province of Davao Oriental
 33. Singapore Airlines Krisflyer Miles
 34. Angeles City
 35. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
@@ -89,11 +89,11 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 54. MDC Suki Card
 55. Psychiatric Wards in Davao City Mental Hospital Corporation
 56. Philippines AirAsia
-57. City Hall Of Davao
+57. City Hall Drive in Davao City
 58. UnionPay
 59. Globe Platinum & Duo
 60. Crematorium
-61. Greenhills Shopping Center in San Juan City,MM
+61. Greenhills Shopping Center in San Juan City, Metro Manila
 62. Gaisano Center in Bolton Street in Davao City
 63. Robinsons Place Manila
 64. Philippine Airlines
