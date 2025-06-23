@@ -97,13 +97,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 62. Gaisano Center in Bolton Street in Davao City
 63. 
 64. Philippine Airlines
-65. LRT Lines 1 to 2
+65. LRT Lines 1 to 2 in MM
 66. Davao Doctors Hospital
 67. Alamat ng Bayabas
 68. People's Park in Davao City
 69. Discover
 70. UST in Manila City
-71. MRT Lines 1 to 3 and MRT Line 7
+71. MRT Lines 1 to 3 and MRT Line 7 in MM
 72. Mall Of Asia in Pasay City
 73. The Cremationist
 74. Robinsons Magnolia in QC
