@@ -89,7 +89,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 54. MDC Suki Card
 55. Psychiatric Wards in Davao City Mental Hospital Corporation
 56. Philippines AirAsia
-57. City Hall Of Davao
+57. City Hall Drive in Davao City
 58. UnionPay
 59. Globe Platinum & Duo
 60. Crematorium
