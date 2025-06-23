@@ -120,7 +120,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 85. Rizal Park in Davao City
 86. Philippine National Railways
 87. Alamat ng Durian
-88. DFA MANILA
+88. 
 89. InstaPay
 90. Davao International Airport
 91. MasterCard
@@ -130,7 +130,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 95. Brokenshire Medical Center
 96. Profood International Corporation in Toril
 97. Santo Rosario Parish in Toril
-98. GO REWARDS CARD
+98. 
 99. City Of Reality
 100. Instagram Philippines
 101. Aurora Boulevard in QC
@@ -146,7 +146,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 111. QRPH
 112. Davao City Bypass Project
 113. NCCC Mall in Maa Davao City
-114. China Town Davao City
+114. China Town in Davao City
 115. India Boys Killahs in Davao City
 116. Germany Boys Killahs in Davao City
 117. The State Of Vatican City
