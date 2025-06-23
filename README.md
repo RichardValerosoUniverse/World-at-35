@@ -149,7 +149,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 114. China Town in Davao City
 115. India Boys Killahs in Davao City
 116. Germany Boys Killahs in Davao City
-117. F. Manalo Street in QC
+117. F. Manalo Street in Cubao
 118. The State Of Vatican City
 119. Kitchen Stewards in Luxent
 120. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
