@@ -39,7 +39,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 4. Universe Boulevard, San Miguel de Valero, Spain
 5. Scout Madriñan in QC
 6. World MasterCard
-7. 
+7. Connecticut Street in San Juan City,MM
 8. Fahrenheit Cafe in QC
 9. World Elite MasterCard
 10. Like This
@@ -93,7 +93,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 58. UnionPay
 59. Globe Platinum & Duo
 60. Crematorium
-61. Greenhills Shopping Center in San Juan City
+61. Greenhills Shopping Center in San Juan City,MM
 62. Gaisano Center in Bolton Street in Davao City
 63. Robinsons Place Manila
 64. Philippine Airlines
@@ -142,7 +142,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 107. Palawan Suki Card
 108. Simbang Baclaran in Parañaque City
 109. GKK San Antonio de Padua in Isum
-110. Davao Mediquest Hospital
+110. Davao Mediquest Hospital in Toril
 111. QRPH
 112. Davao City Bypass Project
 113. NCCC Mall in Maa Davao City
