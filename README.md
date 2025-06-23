@@ -130,7 +130,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 95. Brokenshire Medical Center
 96. Profood International Corporation in Toril
 97. Santo Rosario Parish in Toril
-98. 
+98.  
 99. City Of Reality
 100. Instagram Philippines
 101. Aurora Boulevard in QC
@@ -149,9 +149,10 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 114. China Town in Davao City
 115. India Boys Killahs in Davao City
 116. Germany Boys Killahs in Davao City
-117. The State Of Vatican City
-118. Kitchen Stewards in Luxent
-119. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+117. 
+118. The State Of Vatican City
+119. Kitchen Stewards in Luxent
+120. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
  👀 👁️ 👀 👁️ 
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
@@ -161,7 +162,7 @@ Precisely!
 
 "There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS" #SUPERHIGHNESS and that is myself of mine, Psychiatrist RMV (Richard Madriñan Valeroso,LMT,MD) is the king of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
 
-I am redirected and I have never been DENIED in all my endeavors!!!
+I am redirect  ed and I have never been DENIED in all my endeavors!!!
 
 My Triumphs!!! My sacrifices have turned water into wine and my imaginations into Paradise.
 
