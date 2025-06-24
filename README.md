@@ -138,7 +138,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 103. Ayala Malls Glorietta in Makati City
 104. Bahay Tikiman in Parañaque City
 105. Eastwood City
-106. Alamat ng Pantat
+106. DXDC 621 RMN in Davao City
 107. Palawan Suki Card
 108. Simbang Baclaran in Parañaque City
 109. GKK San Antonio de Padua in Isum
