@@ -87,7 +87,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 52. SM Megamall in Mandaluyong City
 53. Department Of Health Davao Region
 54. MDC Suki Card
-55. 
+55. Psychiatric Wards in Davao City Mental Hospital Corporation
 56. Philippines AirAsia
 57. City Hall Drive in Davao City
 58. UnionPay
