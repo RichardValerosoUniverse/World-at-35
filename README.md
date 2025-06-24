@@ -151,7 +151,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 116. Germany Boys Killahs in Davao City
 117. F. Manalo Street in Cubao
 118. The State Of Vatican City
-119. Kitchen Stewards in Luxent
+119. Kitchen Stewards of Luxent
 120. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
  👀 👁️ 👀 👁️ 
 
