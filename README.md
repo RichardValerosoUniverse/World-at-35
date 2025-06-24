@@ -130,7 +130,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 95. Brokenshire Medical Center
 96. Profood International Corporation in Toril
 97. Santo Rosario Parish in Toril
-98.  
+98. Ortigas Center 
 99. City Of Reality
 100. Instagram Philippines
 101. Aurora Boulevard in QC
