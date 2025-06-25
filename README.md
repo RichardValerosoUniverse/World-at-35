@@ -99,7 +99,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 64. Philippine Airlines
 65. LRT Lines 1 to 2 in MM
 66. Davao Doctors Hospital
-67. Alamat ng Bayabas
+67. Market! Market! in BGC
 68. People's Park in Davao City
 69. Discover
 70. UST in Manila City
@@ -119,7 +119,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 84. Santa Ana Port in Davao City
 85. Rizal Park in Davao City
 86. Philippine National Railways
-87. Alamat ng Durian
+87. Alamat ng Durian, Mansanitas at Bayabas (3 in 1)
 88. Lucky Chinatown Mall in Manila City
 89. InstaPay
 90. Davao International Airport
