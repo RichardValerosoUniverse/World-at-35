@@ -55,7 +55,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 20. Night & Day Walking in Davao City
 21. Tagaytay City
 22. Richard Valeroso Universe on Spotify
-23. Francisco
+23. Trento, Province of Agusan del Sur
 24. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within them since they are fraudsters and have financial lapses towards their consumers for the most part; They are bullshit and with air of "mango quality" features. 🎗️)
 25. Robinsons Lipa
 26. Cebu Pacific
