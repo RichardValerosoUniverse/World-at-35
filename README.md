@@ -54,7 +54,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 20. Valeroso City 1111
 21. Night & Day Walking in Davao City
-22. Sky Ranch in Tagaytay City
+22. Sky Ranch in Tagaytay City, Province of Cavite
 23. Richard Valeroso Universe on Spotify
 24. Trento, Province of Agusan del Sur
 25. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within them since they are fraudsters and have financial lapses towards their consumers for the most part; They are bullshit and with air of "mango quality" features. 🎗️)
