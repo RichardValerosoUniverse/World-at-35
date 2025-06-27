@@ -126,33 +126,35 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 91. Davao International Airport
 92. MasterCard
 93. MDC Gift Certificate
-94. Twitter/X
-95. SM North EDSA
-96. Brokenshire Medical Center
-97. Profood International Corporation in Toril
-98. Santo Rosario Parish in Toril
-99. Ortigas Center 
-100. City Of Reality
-101. Instagram Philippines
-102. Aurora Boulevard in QC
-103. Treffpunkt in Liberty Street in Cubao
-104. Ayala Malls Glorietta in Makati City
-105. Bahay Tikiman in Parañaque City
-106. Eastwood City
-107. DXDC 621 RMN in Davao City
-108. Palawan Suki Card
-109. Simbang Baclaran in Parañaque City
-110. GKK San Antonio de Padua in Isum
-111. Davao Mediquest Hospital in Toril
-112. QRPH
-113. Davao City Bypass Project
-114.
-115.  NCCC Mall in Maa Davao City
-116. China Town in Davao City
-117. India Boys Killahs in Davao City
-118.
-119. Germany Boys Killahs in Davao City
-120. F. Manalo Street in Cubao
+94.
+95. Twitter/X
+96.
+97. SM North EDSA
+98. Brokenshire Medical Center
+99. Profood International Corporation in Toril
+100. Santo Rosario Parish in Toril
+101. Ortigas Center 
+102. City Of Reality
+103. Instagram Philippines
+104. Aurora Boulevard in QC
+105. Treffpunkt in Liberty Street in Cubao
+106. Ayala Malls Glorietta in Makati City
+107. Bahay Tikiman in Parañaque City
+108. Eastwood City
+109. DXDC 621 RMN in Davao City
+110. Palawan Suki Card
+111. Simbang Baclaran in Parañaque City
+112. GKK San Antonio de Padua in Isum
+113. Davao Mediquest Hospital in Toril
+114. QRPH
+115. Davao City Bypass Project
+116.
+117.  NCCC Mall in Maa Davao City
+118. China Town in Davao City
+119. India Boys Killahs in Davao City
+120.
+121. Germany Boys Killahs in Davao City
+122. F. Manalo Street in Cubao
 118.
 119. Vancouver, Canada
 120. The State Of Vatican City
