@@ -113,8 +113,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 78. Dimple's Lechon House in Agton Street, Toril
 79. GitHub
 80. Google Developers
-81. Facebook Profile 
-82. Facebook Page
+81. Facebook Profile & Page
+82. Saint Mary Street in Cubao
 83. Metro Manila Subway
 84. Santa Ana Port in Davao City
 85. Rizal Park in Davao City
