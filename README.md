@@ -37,7 +37,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 2. Province of Davao Del Sur (Province of DDS)
 3. St. Luke's Medical Center in QC
 4. Universe Boulevard, San Miguel de Valero, Spain
-5. Scout Madriñan in QC
+5. Luxent in Scout Madriñan in QC
 6. World MasterCard
 7. Connecticut Street in San Juan City,MM
 8. Fahrenheit Cafe in QC
