@@ -66,7 +66,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 31. Araneta City
 32. Visa
 33. Night Walking in Baganga, Province of Davao Oriental
-34.
+34. NBI Davao Region
 35. Singapore Airlines Krisflyer Miles
 36. Angeles City
 37. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
