@@ -146,12 +146,13 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 111. Davao Mediquest Hospital in Toril
 112. QRPH
 113. Davao City Bypass Project
-114. NCCC Mall in Maa Davao City
-115. China Town in Davao City
-116. India Boys Killahs in Davao City
-117.
-118. Germany Boys Killahs in Davao City
-119. F. Manalo Street in Cubao
+114.
+115.  NCCC Mall in Maa Davao City
+116. China Town in Davao City
+117. India Boys Killahs in Davao City
+118.
+119. Germany Boys Killahs in Davao City
+120. F. Manalo Street in Cubao
 118.
 119. Vancouver, Canada
 120. The State Of Vatican City
