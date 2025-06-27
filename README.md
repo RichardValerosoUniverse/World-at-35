@@ -134,7 +134,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 99. City Of Reality
 100. Instagram Philippines
 101. Aurora Boulevard in QC
-102. Treffpunkt in Cubao
+102. Treffpunkt in Liberty Avenue in Cubao
 103. Ayala Malls Glorietta in Makati City
 104. Bahay Tikiman in Parañaque City
 105. Eastwood City
