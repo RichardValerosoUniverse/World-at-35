@@ -155,7 +155,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 120. India Boys Killahs in Davao City
 121.
 122. Germany Boys Killahs in Davao City
-123. F. Manalo Street in Cubao
+123. Felix Manalo Street in Cubao
 118.
 119. Vancouver, Canada
 120. The State Of Vatican City
