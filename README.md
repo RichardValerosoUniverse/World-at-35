@@ -63,7 +63,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 28. Sunmark Building in Saavedra Street, Toril
 29. Quiapo Church in Manila City
 30. Colours Town Center in Las Piñas City
-31. Araneta City
+31. Araneta City in Cubao
 32. Visa
 33. Night Walking in Baganga, Province of Davao Oriental
 34. NBI Davao Region
@@ -141,7 +141,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 106. Treffpunkt in Liberty Street in Cubao
 107. Robinsons Imus in Imus City, Province of Cavite
 108. Bahay Tikiman in Parañaque City
-109. Eastwood City
+109. Karada in Eastwood City
 110. DXDC 621 RMN in Davao City
 111. Palawan Suki Card
 112. Simbang Baclaran in Parañaque City
