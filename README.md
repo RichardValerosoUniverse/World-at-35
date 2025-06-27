@@ -129,7 +129,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 94. MDC Gift Certificate
 95. Ayala Center in Makati City
 96. Twitter/X
-97.
+97. Annapolis Street in San Juan City,MM
 98. SM North EDSA
 99. Brokenshire Medical Center
 100. Profood International Corporation in Toril
@@ -149,8 +149,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 114. Davao Mediquest Hospital in Toril
 115. QRPH
 116. Davao City Bypass Project
-117.
-118.  NCCC Mall in Maa Davao City
+117. Annapolis Street in Cubao
+118. NCCC Mall in Maa Davao City
 119. China Town in Davao City
 120. India Boys Killahs in Davao City
 121.
