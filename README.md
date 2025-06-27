@@ -127,7 +127,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 92. Davao International Airport
 93. MasterCard
 94. MDC Gift Certificate
-95.
+95. Ayala Center in Makati City
 96. Twitter/X
 97.
 98. SM North EDSA
@@ -139,7 +139,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 104. Instagram Philippines
 105. Aurora Boulevard in QC
 106. Treffpunkt in Liberty Street in Cubao
-107. Ayala Malls Glorietta in Makati City
+107. 
 108. Bahay Tikiman in Parañaque City
 109. Eastwood City
 110. DXDC 621 RMN in Davao City
