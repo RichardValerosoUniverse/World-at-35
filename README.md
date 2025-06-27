@@ -150,7 +150,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 115. India Boys Killahs in Davao City
 116. Germany Boys Killahs in Davao City
 117. F. Manalo Street in Cubao
-118.
+118.Vancouver, Canada
 119. The State Of Vatican City
 120. Monte de Piedad Street in Cubao
 121.
