@@ -88,7 +88,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 53. Manolo Fortich, Province of Bukidnon
 54. SM Megamall in Mandaluyong City
 55. Department Of Health Davao Region
-56. MDC Suki Card
+56. MDC Suki Cardi
 57. Psychiatric Wards in Davao City Mental Hospital Corporation
 58. Philippines AirAsia
 59. City Hall Drive in Davao City
