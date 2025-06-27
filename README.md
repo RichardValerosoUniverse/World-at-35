@@ -105,7 +105,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 70. UST in Manila City
 71. MRT Lines 1 to 3 and MRT Line 7 in MM
 72. Mall Of Asia in Pasay City
-73. 
+73. Davao City Mental Hospital Corporation Entrance Gate & Exit Gate along J.P. Laurel Avenue, Bajada, Davao City
 74. Robinsons Magnolia in QC
 75. Bangko Sentral ng Pilipinas in Davao City
 76. Office of the President of the Republic of the Philippines
