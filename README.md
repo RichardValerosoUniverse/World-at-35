@@ -153,8 +153,8 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 118.Vancouver, Canada
 119. The State Of Vatican City
 120. Monte de Piedad Street in Cubao
-121.
-122.  Administrative Psychiatrist in Davao City Mental Hospital Corporation
+121. 
+122. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 123. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
