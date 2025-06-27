@@ -151,8 +151,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 116. Germany Boys Killahs in Davao City
 117. F. Manalo Street in Cubao
 118. The State Of Vatican City
-119. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-120. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
+119. Monte de Piedad Street in Cubao
+120.  Administrative Psychiatrist in Davao City Mental Hospital Corporation
+121. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
