@@ -52,7 +52,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 17. Southern Philippines Medical Center
 18. Alabang Town Center in Muntinlupa City
 19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
-20. Valeroso City 1111
+20. Valeroso City 1111 in Cubao
 21. Night & Day Walking in Davao City
 22. Sky Ranch in Tagaytay City, Province of Cavite
 23. Richard Valeroso Universe on Spotify
