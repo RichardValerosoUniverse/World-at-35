@@ -92,7 +92,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 57. City Hall Drive in Davao City
 58. UnionPay
 59. Globe Platinum & Duo
-60. Crematorium
+60. Crematorium and the Cremationist (ALIVE VERSION)
 61. Greenhills Shopping Center in San Juan City,MM
 62. Gaisano Center in Bolton Street in Davao City
 63. Ayala Malls The 30th in Pasig City
@@ -105,7 +105,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 70. UST in Manila City
 71. MRT Lines 1 to 3 and MRT Line 7 in MM
 72. Mall Of Asia in Pasay City
-73. The Cremationist
+73. 
 74. Robinsons Magnolia in QC
 75. Bangko Sentral ng Pilipinas in Davao City
 76. Office of the President of the Republic of the Philippines
