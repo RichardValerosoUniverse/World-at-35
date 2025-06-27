@@ -149,8 +149,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 114. NCCC Mall in Maa Davao City
 115. China Town in Davao City
 116. India Boys Killahs in Davao City
-117. Germany Boys Killahs in Davao City
-118. F. Manalo Street in Cubao
+117.
+118. Germany Boys Killahs in Davao City
+119. F. Manalo Street in Cubao
 118.
 119. Vancouver, Canada
 120. The State Of Vatican City
