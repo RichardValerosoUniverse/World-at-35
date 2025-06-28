@@ -68,14 +68,14 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 33. Night Walking in Baganga, Province of Davao Oriental
 34. NBI Davao Region
 35. Singapore Airlines Krisflyer Miles
-36. Angeles City
+36. 
 37. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
 38. The Marikina Clock Tower Arch
 39. Mactan-Cebu International Airport
 40. SM Advantage Card
 41. Smart Araneta Coliseum
 42. Karada Gift Certificate
-43. Roxas Avenue in Davao City
+43. Night Market in Roxas Avenue in Davao City
 44. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
 45. Ninoy Aquino International Airport 
 46. JCB
