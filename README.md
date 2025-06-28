@@ -57,7 +57,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 22. Sky Ranch in Tagaytay City, Province of Cavite
 23. Richard Valeroso Universe on Spotify
 24. Trento, Province of Agusan del Sur
-25. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within them since they are fraudsters and have financial lapses towards their consumers for the most part; They are bullshit and with air of "mango quality" features. 🎗️)
+25. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within themselves since they are fraudsters, scammers and have financial lapses and inability to produce results towards their consumers/customers for the most part; They are bullshit and "puta" and with air of "mango quality" features. 🎗️)
 26. Robinsons Lipa
 27. Cebu Pacific
 28. Sunmark Building in Saavedra Street, Toril
