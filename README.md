@@ -41,7 +41,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 6. World MasterCard
 7. Connecticut Street in San Juan City,MM
 8. Fahrenheit Cafe in QC
-9.
+9. DFA NCR Northeast
 10. World Elite MasterCard
 11. Like This
 12. Alcatraz, California, USA
