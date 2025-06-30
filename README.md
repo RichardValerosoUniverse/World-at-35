@@ -96,7 +96,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 61. Globe Platinum & Duo
 62. Crematorium and the Cremationist (ALIVE VERSION)
 63. Greenhills Shopping Center in San Juan City,MM
-64. Gaisano Center in Bolton Street in Davao City
+64. 
 65. Ayala Malls The 30th in Pasig City
 66. Philippine Airlines
 67. LRT Lines 1 to 2 in MM
@@ -160,7 +160,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 119. Vancouver, Canada
 120. The State Of Vatican City
 121. Monte de Piedad Street in Cubao
-122. 
+122. Gaisano Mall of Toril
 123. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 124. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
