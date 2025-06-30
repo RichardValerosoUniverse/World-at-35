@@ -69,7 +69,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 34. NBI Davao Region
 35. Singapore Airlines Krisflyer Miles
 36. 
-37. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
+37. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000 
 38. The Marikina Clock Tower Arch
 39. Mactan-Cebu International Airport
 40. SM Advantage Card
@@ -107,7 +107,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 72. UST in Manila City
 73. MRT Lines 1 to 3 and MRT Line 7 in MM
 74. Mall Of Asia in Pasay City
-75. Davao City Mental Hospital Corporation Entrance Gate & Exit Gate along J.P. Laurel Avenue, Bajada, Davao City
+75. Davao City Mental Hospital Corporation's Entrance Gate & Exit Gate along J.P. Laurel Avenue, Bajada, Davao City
 76. Robinsons Magnolia in QC
 77. Bangko Sentral ng Pilipinas in Davao City
 78. Office of the President of the Republic of the Philippines
