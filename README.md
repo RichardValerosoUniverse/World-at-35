@@ -145,9 +145,9 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 110. DXDC 621 RMN in Davao City
 111. Palawan Suki Card
 112. Simbang Baclaran in Parañaque City
-113. GKK San Antonio de Padua in Isum
+113. Isum's GKK San Antonio de Padua Church
 114. Davao Mediquest Hospital in Toril
-115. QRPH
+115. 
 116. Davao City Bypass Project
 117. Annapolis Street in Cubao
 118. NCCC Mall in Maa Davao City
