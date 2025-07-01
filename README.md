@@ -147,7 +147,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 112. Simbang Baclaran in Parañaque City
 113. Isum's GKK San Antonio de Padua Church
 114. Davao Mediquest Hospital in Toril
-115. 
+115. Ayala Malls Trinoma in QC
 116. Davao City Bypass Project
 117. Annapolis Street in Cubao
 118. 
