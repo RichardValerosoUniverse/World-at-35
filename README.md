@@ -150,7 +150,7 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 115. 
 116. Davao City Bypass Project
 117. Annapolis Street in Cubao
-118. NCCC Mall in Maa Davao City
+118. 
 119. NCCC Mall VP in Davao City
 120. India Boys Killahs in Davao City
 121. 
