@@ -70,9 +70,9 @@ Myself of mine is living at the moment in United States Of America all the time 
 35. Psychiatric Wards in Davao City Mental Hospital Corporation
 36. Crematorium and the Cremationist (ALIVE VERSION)
 37. Greenhills Shopping Center in San Juan City,MM
-38. 
-39. 
-40. 
+38. Profood International Corporation in Toril
+39. Davao Mediquest Hospital in Toril
+40. Davao Doctors Hospital
 41. LRT Lines 1 to 2 in MM
 42. UST in Manila City
 43. MRT Lines 1 to 3 in MM
