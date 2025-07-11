@@ -42,8 +42,8 @@ Myself of mine is living at the moment in United States Of America all the time 
 7. GitHub
 8. Fahrenheit Cafe in QC
 9. DFA NCR Northeast
-10. Globe Platinum
-11. Globe Duo
+10. 
+11. DITO SIM card
 12. Visa
 13. The Valeroso City 8000
 14. Saavedra Street in Toril
