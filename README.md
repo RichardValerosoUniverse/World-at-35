@@ -51,10 +51,10 @@ Myself of mine is living at the moment in United States Of America all the time 
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
 18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
-19. 
+19. Ayala Malls Glorietta in Makati City
 20. Quiapo Church in Manila City
 21. Araneta City in Cubao
-22. Imperial Street in Cubao
+22. Robinsons in Manila City
 23. Singapore Airlines Krisflyer Miles
 24. The Marikina Clock Tower Arch
 25. SM Advantage Card
