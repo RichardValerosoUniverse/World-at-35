@@ -56,7 +56,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 21. Quiapo Church in Manila City
 22. Araneta City in Cubao
 23. Robinsons in Manila City
-24. Singapore Airlines Krisflyer Miles
+24. 
 25. The Marikina Clock Tower Arch
 26. SM Advantage Card
 27. Karada Gift Certificate
