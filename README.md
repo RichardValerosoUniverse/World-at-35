@@ -85,7 +85,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 50. MDC Gift Certificate
 51. Ayala Center in Makati City
 52. Twitter/X
-53. Annapolis Street in San Juan City,MM
+53. 
 54. SM North EDSA
 55. Santo Rosario Parish in Toril
 56. Treffpunkt in Liberty Street in Cubao
@@ -112,18 +112,3 @@ Veritas hurts & Myself of mine is the Greatest Killah!
 Let us sing the "Run This Town, Killah, Cartoon Heroes, and Tarzan Boy"! 😂
 
 
-#GoodToBeNeverAlone
-#BettahToBeMyTruths
-#BestTo Be ♥️
-😁👍
-👁️👀
-👀👁️
-🚨🕯️👍
-🦕🦖
-🔐🔐💪
-#MyselfOfMineIsNotLost
-#♥️
-#♥️
-#♥️
-#♥️
-👑👑👑♾️♾️♾️♾️♾️♾️♾️♾️
