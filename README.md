@@ -50,50 +50,25 @@ Myself of mine is living at the moment in United States Of America all the time 
 15. Metropolitan Cathedral of San Pedro in Davao City
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
-18. 
 19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 20. Valeroso City 1111 in Cubao
-21. 
-22. 
-23. 
-24. 
 25. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within themselves since they are fraudsters, scammers and have financial lapses and inability to produce results towards their consumers/customers for the most part; They are bullshit and "puta" and with air of "mango quality" features. 🎗️)
-26. 
-27. 
-28. 
 29. Quiapo Church in Manila City
-30. 
 31. Araneta City in Cubao
-32. Visa
-33. 
 34. NBI Davao Region
 35. Singapore Airlines Krisflyer Miles
-36. 
-37. 
 38. The Marikina Clock Tower Arch
-39. 
 40. SM Advantage Card
-41. 
 42. Karada Gift Certificate
 43. Night Market in Roxas Avenue in Davao City
 44. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
 45. Ninoy Aquino International Airport 
-46. JCB
-47. 
 48. Yale Street in Cubao
-49. 
 50. 659 EDSA
-51. 
-52. AMEX
-53. 
 54. SM Megamall in Mandaluyong City
 55. Department Of Health Davao Region
 56. MDC Suki Cardi
 57. Psychiatric Wards in Davao City Mental Hospital Corporation
-58. Philippines AirAsia
-59. City Hall Drive in Davao City
-60. UnionPay
-61. 
 62. Crematorium and the Cremationist (ALIVE VERSION)
 63. Greenhills Shopping Center in San Juan City,MM
 64. 
@@ -107,16 +82,9 @@ Myself of mine is living at the moment in United States Of America all the time 
 72. UST in Manila City
 73. MRT Lines 1 to 3 and MRT Line 7 in MM
 74. Mall Of Asia in Pasay City
-75. 
 76. Robinsons Magnolia in QC
-77. 
-78. 
 79. Mandaluyong Loob Mental Hospital
-80. 
 81. GitHub
-82. 
-83. 
-84. 
 85. Metro Manila Subway
 86. Santa Ana Port in Davao City
 87. Rizal Park in Davao City
@@ -131,36 +99,18 @@ Myself of mine is living at the moment in United States Of America all the time 
 96. Twitter/X
 97. Annapolis Street in San Juan City,MM
 98. SM North EDSA
-99. 
-100. 
 101. Santo Rosario Parish in Toril
-102. 
-103. 
-104. 
-105. 
 106. Treffpunkt in Liberty Street in Cubao
-107. 
 108. Bahay Tikiman in Parañaque City
-109. 
-110.   
 111. Palawan Suki Card
 112. Simbang Baclaran in Parañaque City
-113. 
-114. 
 115. Ayala Malls Trinoma in QC
 116. Davao City Bypass Project
 117. Annapolis Street in Cubao
-118. 
-119. 
-120. 
-121. 
-122. 
 123. Felix Manalo Street in Cubao
 118. Benitez Street in Cubao
-119. 
 120. The State Of Vatican City
 121. Monte de Piedad Street in Cubao
-122. 
 123. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 124. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
