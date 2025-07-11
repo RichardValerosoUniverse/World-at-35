@@ -37,7 +37,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 2. Province of Davao Del Sur (Province of DDS)
 3. Valeroso City 1111 in Cubao
 4. Platinum
-5. Luxent in Scout Madriñan in QC
+5. Scout Madriñan in QC
 6. World MasterCard
 7. GitHub
 8. Fahrenheit Cafe in QC
