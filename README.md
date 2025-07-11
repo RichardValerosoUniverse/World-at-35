@@ -50,49 +50,51 @@ Myself of mine is living at the moment in United States Of America all the time 
 15. Metropolitan Cathedral of San Pedro in Davao City
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
-18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
-19. Ayala Malls Glorietta in Makati City
-20. Quiapo Church in Manila City
-21. Araneta City in Cubao
-22. Robinsons in Manila City
-23. Singapore Airlines Krisflyer Miles
-24. The Marikina Clock Tower Arch
-25. SM Advantage Card
-26. Karada Gift Certificate
-27. Agton Street in Toril
-28. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-29. Ninoy Aquino International Airport 
-30. Yale Street in Cubao
-31. 659 EDSA
-32. SM Megamall in Mandaluyong City
-33. Department Of Health Davao Region
-34. MDC Suki Card
-35. Psychiatric Wards in Davao City Mental Hospital Corporation
-36. Crematorium and the Cremationist (ALIVE VERSION)
-37. Greenhills Shopping Center in San Juan City,MM
-38. Profood International Corporation in Toril
-39. Davao Mediquest Hospital in Toril
-40. Davao Doctors Hospital
-41. LRT Lines 1 to 2 in MM
-42. UST in Manila City
-43. MRT Lines 1 to 3 in MM
-44. Mall Of Asia in Pasay City
-45. Robinsons Magnolia in QC
-46. Santa Ana Port in Davao City
-47. Rizal Park in Davao City
-48. Davao International Airport
-49. MasterCard
-50. MDC Gift Certificate
-51. Smart Araneta Coliseum
-52. Twitter/X
-53. Simbang Baclaran in Parañaque City
-54. SM North EDSA
-55. Santo Rosario Parish in Toril
-56. Treffpunkt in Liberty Street in Cubao
-57. Bahay Tikiman in Parañaque City
-58. Psychiatrists in Davao City Mental Hospital Corporation
-59. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-60. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
+18. Saint Luke's Medical Center in QC
+19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
+20. Ayala Malls Glorietta in Makati City
+21. Quiapo Church in Manila City
+22. Araneta City in Cubao
+23. Robinsons in Manila City
+24. Singapore Airlines Krisflyer Miles
+25. The Marikina Clock Tower Arch
+26. SM Advantage Card
+27. Karada Gift Certificate
+28. Agton Street in Toril
+29. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
+30. Ninoy Aquino International Airport 
+31. Yale Street in Cubao
+32. 659 EDSA
+33. SM Megamall in Mandaluyong City
+34. Department Of Health Davao Region
+35. MDC Suki Card
+36. Psychiatric Wards in Davao City Mental Hospital Corporation
+37. Crematorium and the Cremationist (ALIVE VERSION)
+38. Greenhills Shopping Center in San Juan City,MM
+39. Profood International Corporation in Toril
+40. Davao Mediquest Hospital in Toril
+41. Davao Doctors Hospital
+42. LRT Lines 1 to 2 in MM
+43. UST in Manila City
+44. JCB
+45. MRT Lines 1 to 3 in MM
+46. Mall Of Asia in Pasay City
+47. Robinsons Magnolia in QC
+48. Santa Ana Port in Davao City
+49. Rizal Park in Davao City
+50. Davao International Airport
+51. MasterCard
+52. MDC Gift Certificate
+53. Smart Araneta Coliseum
+54. Twitter/X
+55. Simbang Baclaran in Parañaque City
+56. SM North EDSA
+57. Santo Rosario Parish in Toril
+58. Treffpunkt in Liberty Street in Cubao
+59. Bahay Tikiman in Parañaque City
+60. Psychiatrists in Davao City Mental Hospital Corporation
+61. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+62. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
 
