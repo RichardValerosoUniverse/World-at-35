@@ -95,7 +95,6 @@ Myself of mine is living at the moment in United States Of America all the time 
 60. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
-Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
 
 Again, it is what it is nevertheless.
 Precisely!
