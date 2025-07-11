@@ -52,10 +52,9 @@ Myself of mine is living at the moment in United States Of America all the time 
 17. Southern Philippines Medical Center
 18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 19. Valeroso City 1111 in Cubao
-20. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within themselves since they are fraudsters, scammers and have financial lapses and inability to produce results towards their consumers/customers for the most part; They are bullshit and "puta" and with air of "mango quality" features. 🎗️)
 21. Quiapo Church in Manila City
 22. . Araneta City in Cubao
-23. NBI Davao Region
+23. 
 24. Singapore Airlines Krisflyer Miles
 25. The Marikina Clock Tower Arch
 26. SM Advantage Card
@@ -67,7 +66,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 32. 659 EDSA
 33. SM Megamall in Mandaluyong City
 34. Department Of Health Davao Region
-35. MDC Suki Cardi
+35. MDC Suki Card
 36. Psychiatric Wards in Davao City Mental Hospital Corporation
 37. Crematorium and the Cremationist (ALIVE VERSION)
 38. Greenhills Shopping Center in San Juan City,MM
@@ -80,7 +79,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 45. 
 46. 
 47. UST in Manila City
-48. MRT Lines 1 to 3 
+48. MRT Lines 1 to 3 in MM
 49. Mall Of Asia in Pasay City
 50. Robinsons Magnolia in QC
 51. 
@@ -88,10 +87,10 @@ Myself of mine is living at the moment in United States Of America all the time 
 53. 
 54. Santa Ana Port in Davao City
 55. Rizal Park in Davao City
-56. Philippine National Railways
+56. 
 57. Banahaw Street in Cubao
 58. 
-59. InstaPay
+59. 
 60. Davao International Airport
 61. MasterCard
 62. MDC Gift Certificate
@@ -106,9 +105,9 @@ Myself of mine is living at the moment in United States Of America all the time 
 71. Simbang Baclaran in Parañaque City
 72. 
 73. 
-74. Annapolis Street in Cubao
-75. Felix Manalo Street in Cubao
-76. Benitez Street in Cubao
+74. 
+75. 
+76. 
 77. 
 78. Monte de Piedad Street in Cubao
 79. Administrative Psychiatrist in Davao City Mental Hospital Corporation
