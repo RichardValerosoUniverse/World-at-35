@@ -85,12 +85,12 @@ Myself of mine is living at the moment in United States Of America all the time 
 50. MDC Gift Certificate
 51. Ayala Center in Makati City
 52. Twitter/X
-53. 
+53. Simbang Baclaran in Parañaque City
 54. SM North EDSA
 55. Santo Rosario Parish in Toril
 56. Treffpunkt in Liberty Street in Cubao
 57. Bahay Tikiman in Parañaque City
-58. Simbang Baclaran in Parañaque City
+58. Psychiatrists in Davao City Mental Hospital Corporation
 59. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 60. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
