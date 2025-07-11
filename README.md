@@ -36,7 +36,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 1. Spanish Blood & Spanish DNA
 2. Province of Davao Del Sur (Province of DDS)
 3. Valeroso City 1111 in Cubao
-4. Platinum
+4. 
 5. Scout Madriñan in QC
 6. World MasterCard
 7. GitHub
