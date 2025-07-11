@@ -72,25 +72,25 @@ Myself of mine is living at the moment in United States Of America all the time 
 37. Crematorium and the Cremationist (ALIVE VERSION)
 38. Greenhills Shopping Center in San Juan City,MM
 39. 
-40. Ayala Malls The 30th in Pasig City
+40. 
 41. 
 42. LRT Lines 1 to 2 in MM
 43. 
 44. 
 45. 
-46. Discover
+46. 
 47. UST in Manila City
-48. MRT Lines 1 to 3 and MRT Line 7 in MM
+48. MRT Lines 1 to 3 
 49. Mall Of Asia in Pasay City
 50. Robinsons Magnolia in QC
-51. Mandaluyong Loob Mental Hospital
+51. 
 52. GitHub
-53. Metro Manila Subway
+53. 
 54. Santa Ana Port in Davao City
 55. Rizal Park in Davao City
 56. Philippine National Railways
 57. Banahaw Street in Cubao
-58. Lucky Chinatown Mall in Manila City
+58. 
 59. InstaPay
 60. Davao International Airport
 61. MasterCard
@@ -102,14 +102,14 @@ Myself of mine is living at the moment in United States Of America all the time 
 67. Santo Rosario Parish in Toril
 68. Treffpunkt in Liberty Street in Cubao
 69. Bahay Tikiman in Parañaque City
-70. Palawan Suki Card
+70. 
 71. Simbang Baclaran in Parañaque City
-72. Ayala Malls Trinoma in QC
-73. Davao City Bypass Project
+72. 
+73. 
 74. Annapolis Street in Cubao
 75. Felix Manalo Street in Cubao
 76. Benitez Street in Cubao
-77. The State Of Vatican City
+77. 
 78. Monte de Piedad Street in Cubao
 79. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 80. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
