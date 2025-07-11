@@ -32,60 +32,60 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and from to time My Time can be found in some other states whether or not in the state of freedom, state of laughter or state of depression, state of pain, state of revenge, state of lone star, state of one sun, state of seven seas, state of loneliness, state of music, state of smile, state of nothingness, state of imagination, state of luxury, state of fullness, state of whatevah, among others.
 
-A lot of happenings are gradually progressing and becoming reality as Myself of mine is  materializing my Virtual Private Networks and Myself of mine is sorting all things out in the following nations, territories, and kingdoms as follows:
+
 1. Spanish Blood & Spanish DNA
 2. Province of Davao Del Sur (Province of DDS)
-3. St. Luke's Medical Center in QC
-4. Universe Boulevard, San Miguel de Valero, Spain
+3. 
+4. 
 5. Luxent in Scout Madriñan in QC
 6. World MasterCard
 7. Connecticut Street in San Juan City,MM
 8. Fahrenheit Cafe in QC
 9. DFA NCR Northeast
-10. World Elite MasterCard
-11. Like This
-12. Alcatraz, California, USA
+10. 
+11. 
+12. 
 13. The Valeroso City 8000
 14. Bayside Village Subdivision in Lanang
 15. Metropolitan Cathedral of San Pedro in Davao City
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
-18. Alabang Town Center in Muntinlupa City
+18. 
 19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 20. Valeroso City 1111 in Cubao
-21. Night & Day Walking in Davao City
-22. Sky Ranch in Tagaytay City, Province of Cavite
-23. Richard Valeroso Universe on Spotify
-24. Trento, Province of Agusan del Sur
+21. 
+22. 
+23. 
+24. 
 25. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within themselves since they are fraudsters, scammers and have financial lapses and inability to produce results towards their consumers/customers for the most part; They are bullshit and "puta" and with air of "mango quality" features. 🎗️)
-26. Robinsons Lipa
-27. Cebu Pacific
-28. Sunmark Building in Saavedra Street, Toril
+26. 
+27. 
+28. 
 29. Quiapo Church in Manila City
-30. Colours Town Center in Las Piñas City
+30. 
 31. Araneta City in Cubao
 32. Visa
-33. Night Walking in Baganga, Province of Davao Oriental
+33. 
 34. NBI Davao Region
 35. Singapore Airlines Krisflyer Miles
 36. 
-37. Richard Madriñan Valeroso Territory, Kingdom and Nation 8000
+37. 
 38. The Marikina Clock Tower Arch
-39. Mactan-Cebu International Airport
+39. 
 40. SM Advantage Card
-41. Smart Araneta Coliseum
+41. 
 42. Karada Gift Certificate
 43. Night Market in Roxas Avenue in Davao City
 44. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
 45. Ninoy Aquino International Airport 
 46. JCB
-47. Postal Office in Toril
+47. 
 48. Yale Street in Cubao
-49. Bureau of Internal Revenue Davao Region
+49. 
 50. 659 EDSA
-51. DITO Telecommunity Prepaid SIM Card
+51. 
 52. AMEX
-53. Manolo Fortich, Province of Bukidnon
+53. 
 54. SM Megamall in Mandaluyong City
 55. Department Of Health Davao Region
 56. MDC Suki Cardi
@@ -93,30 +93,30 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 58. Philippines AirAsia
 59. City Hall Drive in Davao City
 60. UnionPay
-61. Globe Platinum & Duo
+61. 
 62. Crematorium and the Cremationist (ALIVE VERSION)
 63. Greenhills Shopping Center in San Juan City,MM
 64. 
 65. Ayala Malls The 30th in Pasig City
-66. Philippine Airlines
+66. 
 67. LRT Lines 1 to 2 in MM
-68. Davao Doctors Hospital
-69. Market! Market! in BGC
-70. People's Park in Davao City
+68. 
+69. 
+70. 
 71. Discover
 72. UST in Manila City
 73. MRT Lines 1 to 3 and MRT Line 7 in MM
 74. Mall Of Asia in Pasay City
-75. Davao City Mental Hospital Corporation Entrance Gate & Exit Gate along J.P. Laurel Avenue, Bajada, Davao City
+75. 
 76. Robinsons Magnolia in QC
-77. Bangko Sentral ng Pilipinas in Davao City
+77. 
 78. Office of the President of the Republic of the Philippines
 79. Mandaluyong Loob Mental Hospital
-80. Dimple's Lechon House in Agton Street, Toril
+80. 
 81. GitHub
-82. Google Developers
-83. Facebook Profile & Page
-84. Saint Mary Street in Cubao
+82. 
+83. 
+84. 
 85. Metro Manila Subway
 86. Santa Ana Port in Davao City
 87. Rizal Park in Davao City
@@ -131,36 +131,36 @@ A lot of happenings are gradually progressing and becoming reality as Myself of 
 96. Twitter/X
 97. Annapolis Street in San Juan City,MM
 98. SM North EDSA
-99. Brokenshire Medical Center
-100. Profood International Corporation in Toril
+99. 
+100. 
 101. Santo Rosario Parish in Toril
-102. Ortigas Center 
-103. City Of Reality
-104. Instagram Philippines
-105. Aurora Boulevard in QC
+102. 
+103. 
+104. 
+105. 
 106. Treffpunkt in Liberty Street in Cubao
-107. Robinsons Imus in Imus City, Province of Cavite
+107. 
 108. Bahay Tikiman in Parañaque City
-109. Karada in Eastwood City
-110. DXDC 621 RMN in Davao City
+109. 
+110.   
 111. Palawan Suki Card
 112. Simbang Baclaran in Parañaque City
-113. Isum's GKK San Antonio de Padua Church
-114. Davao Mediquest Hospital in Toril
+113. 
+114. 
 115. Ayala Malls Trinoma in QC
 116. Davao City Bypass Project
 117. Annapolis Street in Cubao
-118. Newport Mall in Pasay City
-119. NCCC Mall VP in Davao City
-120. India Boys Killahs in Davao City
+118. 
+119. 
+120. 
 121. 
-122. Germany Boys Killahs in Davao City
+122. 
 123. Felix Manalo Street in Cubao
 118. Benitez Street in Cubao
-119. Vancouver, Canada
+119. 
 120. The State Of Vatican City
 121. Monte de Piedad Street in Cubao
-122. Gaisano Mall of Toril
+122. 
 123. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 124. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
