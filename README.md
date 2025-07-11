@@ -39,27 +39,27 @@ Myself of mine is living at the moment in United States Of America all the time 
 4. Platinum
 5. Luxent in Scout Madriñan in QC
 6. World MasterCard
-7. Connecticut Street in San Juan City,MM
+7. GitHub
 8. Fahrenheit Cafe in QC
 9. DFA NCR Northeast
-10. Globe Platinum 
+10. Globe Platinum
 11. Globe Duo
-12. 
+12. Visa
 13. The Valeroso City 8000
-14. Bayside Village Subdivision in Lanang
+14. 
 15. Metropolitan Cathedral of San Pedro in Davao City
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
 18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 19. Valeroso City 1111 in Cubao
 21. Quiapo Church in Manila City
-22. . Araneta City in Cubao
-23. 
+22. Araneta City in Cubao
+23. Imperial Street in Cubao
 24. Singapore Airlines Krisflyer Miles
 25. The Marikina Clock Tower Arch
 26. SM Advantage Card
 27. Karada Gift Certificate
-28. Night Market in Roxas Avenue in Davao City
+28. 
 29. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
 30. Ninoy Aquino International Airport 
 31. Yale Street in Cubao
@@ -83,12 +83,12 @@ Myself of mine is living at the moment in United States Of America all the time 
 49. Mall Of Asia in Pasay City
 50. Robinsons Magnolia in QC
 51. 
-52. GitHub
+52. 
 53. 
 54. Santa Ana Port in Davao City
 55. Rizal Park in Davao City
 56. 
-57. Banahaw Street in Cubao
+57. 
 58. 
 59. 
 60. Davao International Airport
@@ -109,7 +109,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 75. 
 76. 
 77. 
-78. Monte de Piedad Street in Cubao
+78. 
 79. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 80. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
