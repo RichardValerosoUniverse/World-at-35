@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 1. Spanish Blood & Spanish DNA
 2. Province of Davao Del Sur (Province of DDS)
-3. 
+3. Valeroso City 1111 in Cubao
 4. Platinum
 5. Luxent in Scout Madriñan in QC
 6. World MasterCard
@@ -51,7 +51,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
 18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
-19. Valeroso City 1111 in Cubao
+19. 
 20. Quiapo Church in Manila City
 21. Araneta City in Cubao
 22. Imperial Street in Cubao
@@ -83,7 +83,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 48. Davao International Airport
 49. MasterCard
 50. MDC Gift Certificate
-51. 
+51. Smart Araneta Coliseum
 52. Twitter/X
 53. Simbang Baclaran in Parañaque City
 54. SM North EDSA
