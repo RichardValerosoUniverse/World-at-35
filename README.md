@@ -35,7 +35,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 1. Spanish Blood & Spanish DNA
 2. Province of Davao Del Sur (Province of DDS)
-3. Postal Office in Toril
+3. 
 4. Platinum
 5. Luxent in Scout Madriñan in QC
 6. World MasterCard
@@ -83,7 +83,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 48. Davao International Airport
 49. MasterCard
 50. MDC Gift Certificate
-51. Ayala Center in Makati City
+51. 
 52. Twitter/X
 53. Simbang Baclaran in Parañaque City
 54. SM North EDSA
