@@ -35,15 +35,15 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 1. Spanish Blood & Spanish DNA
 2. Province of Davao Del Sur (Province of DDS)
-3. 
-4. 
+3. Postal Office in Toril
+4. Platinum
 5. Luxent in Scout Madriñan in QC
 6. World MasterCard
 7. Connecticut Street in San Juan City,MM
 8. Fahrenheit Cafe in QC
 9. DFA NCR Northeast
-10. 
-11. 
+10. Globe Platinum 
+11. Globe Duo
 12. 
 13. The Valeroso City 8000
 14. Bayside Village Subdivision in Lanang
