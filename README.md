@@ -50,69 +50,69 @@ Myself of mine is living at the moment in United States Of America all the time 
 15. Metropolitan Cathedral of San Pedro in Davao City
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
-19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
-20. Valeroso City 1111 in Cubao
-25. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within themselves since they are fraudsters, scammers and have financial lapses and inability to produce results towards their consumers/customers for the most part; They are bullshit and "puta" and with air of "mango quality" features. 🎗️)
-29. Quiapo Church in Manila City
-31. Araneta City in Cubao
-34. NBI Davao Region
-35. Singapore Airlines Krisflyer Miles
-38. The Marikina Clock Tower Arch
-40. SM Advantage Card
-42. Karada Gift Certificate
-43. Night Market in Roxas Avenue in Davao City
-44. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-45. Ninoy Aquino International Airport 
-48. Yale Street in Cubao
-50. 659 EDSA
-54. SM Megamall in Mandaluyong City
-55. Department Of Health Davao Region
-56. MDC Suki Cardi
-57. Psychiatric Wards in Davao City Mental Hospital Corporation
-62. Crematorium and the Cremationist (ALIVE VERSION)
-63. Greenhills Shopping Center in San Juan City,MM
-64. 
-65. Ayala Malls The 30th in Pasig City
-66. 
-67. LRT Lines 1 to 2 in MM
-68. 
-69. 
-70. 
-71. Discover
-72. UST in Manila City
-73. MRT Lines 1 to 3 and MRT Line 7 in MM
-74. Mall Of Asia in Pasay City
-76. Robinsons Magnolia in QC
-79. Mandaluyong Loob Mental Hospital
-81. GitHub
-85. Metro Manila Subway
-86. Santa Ana Port in Davao City
-87. Rizal Park in Davao City
-88. Philippine National Railways
-89. Banahaw Street in Cubao
-90. Lucky Chinatown Mall in Manila City
-91. InstaPay
-92. Davao International Airport
-93. MasterCard
-94. MDC Gift Certificate
-95. Ayala Center in Makati City
-96. Twitter/X
-97. Annapolis Street in San Juan City,MM
-98. SM North EDSA
-101. Santo Rosario Parish in Toril
-106. Treffpunkt in Liberty Street in Cubao
-108. Bahay Tikiman in Parañaque City
-111. Palawan Suki Card
-112. Simbang Baclaran in Parañaque City
-115. Ayala Malls Trinoma in QC
-116. Davao City Bypass Project
-117. Annapolis Street in Cubao
-123. Felix Manalo Street in Cubao
-118. Benitez Street in Cubao
-120. The State Of Vatican City
-121. Monte de Piedad Street in Cubao
-123. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-124. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
+18. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
+19. Valeroso City 1111 in Cubao
+20. Gcash/Maya/Grab (This Trinity should have shared Financial Statements of assets, liabilities and Net Worth or Shared Balance Sheets within themselves since they are fraudsters, scammers and have financial lapses and inability to produce results towards their consumers/customers for the most part; They are bullshit and "puta" and with air of "mango quality" features. 🎗️)
+21. Quiapo Church in Manila City
+22. . Araneta City in Cubao
+23. NBI Davao Region
+24. Singapore Airlines Krisflyer Miles
+25. The Marikina Clock Tower Arch
+26. SM Advantage Card
+27. Karada Gift Certificate
+28. Night Market in Roxas Avenue in Davao City
+29. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
+30. Ninoy Aquino International Airport 
+31. Yale Street in Cubao
+32. 659 EDSA
+33. SM Megamall in Mandaluyong City
+34. Department Of Health Davao Region
+35. MDC Suki Cardi
+36. Psychiatric Wards in Davao City Mental Hospital Corporation
+37. Crematorium and the Cremationist (ALIVE VERSION)
+38. Greenhills Shopping Center in San Juan City,MM
+39. 
+40. Ayala Malls The 30th in Pasig City
+41. 
+42. LRT Lines 1 to 2 in MM
+43. 
+44. 
+45. 
+46. Discover
+47. UST in Manila City
+48. MRT Lines 1 to 3 and MRT Line 7 in MM
+49. Mall Of Asia in Pasay City
+50. Robinsons Magnolia in QC
+51. Mandaluyong Loob Mental Hospital
+52. GitHub
+53. Metro Manila Subway
+54. Santa Ana Port in Davao City
+55. Rizal Park in Davao City
+56. Philippine National Railways
+57. Banahaw Street in Cubao
+58. Lucky Chinatown Mall in Manila City
+59. InstaPay
+60. Davao International Airport
+61. MasterCard
+62. MDC Gift Certificate
+63. Ayala Center in Makati City
+64. Twitter/X
+65. Annapolis Street in San Juan City,MM
+66. SM North EDSA
+67. Santo Rosario Parish in Toril
+68. Treffpunkt in Liberty Street in Cubao
+69. Bahay Tikiman in Parañaque City
+70. Palawan Suki Card
+71. Simbang Baclaran in Parañaque City
+72. Ayala Malls Trinoma in QC
+73. Davao City Bypass Project
+74. Annapolis Street in Cubao
+75. Felix Manalo Street in Cubao
+76. Benitez Street in Cubao
+77. The State Of Vatican City
+78. Monte de Piedad Street in Cubao
+79. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+80. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
 Myself of mine loves 💕 currencies, snakes 🐍,crocodiles 🐊, cats, androids, black items and anything black, gold, cash, electronic debit and credit, Confidential Funds, cryptography and there are a lot more.
