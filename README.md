@@ -70,7 +70,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 35. LRT Lines 1 to 2 in MM
 36. UST in Manila City
 37. JCB
-38. MRT Lines 1 to 3 in MM
+38. MRT Line 3 in MM
 39. Mall Of Asia in Pasay City
 40. Robinsons Magnolia in QC
 41. Santa Ana Port in Davao City
