@@ -37,20 +37,20 @@ Myself of mine is living at the moment in United States Of America all the time 
 2. Province of Davao Del Sur (Province of DDS)
 3. Valeroso City 1111 in Cubao
 4. 
-5. Scout Madriñan in QC
+5. 
 6. World MasterCard
 7. GitHub
-8. Fahrenheit Cafe in QC
+8. 
 9. DFA NCR Northeast
 10. Diocesan Shrine of Saint Joseph in Cubao
-11. DITO SIM card
+11. 
 12. Visa
 13. The Valeroso City 8000
 14. Saavedra Street in Toril
 15. Metropolitan Cathedral of San Pedro in Davao City
 16. Municipality of Santa Cruz, Province of DDS
 17. Southern Philippines Medical Center
-18. Saint Luke's Medical Center in QC
+18. 
 19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
 20. Ayala Malls Glorietta in Makati City
 21. Quiapo Church in Manila City
