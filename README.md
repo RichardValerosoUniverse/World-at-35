@@ -65,13 +65,13 @@ Myself of mine is living at the moment in United States Of America all the time 
 30. Crematorium and the Cremationist (ALIVE VERSION)
 31. Greenhills Shopping Center in San Juan City,MM
 32. Profood International Corporation in Toril
-33. Davao Mediquest Hospital in Toril
+33. Davao Mediquest Hospital,Inc.
 34. Davao Doctors Hospital
 35. LRT Lines 1 to 2 in MM
 36. UST in Manila City
 37. JCB
 38. MRT Lines 1 to 3 in MM
-39. Mall Of Asia in Pasay City
+39. SM Mall Of Asia in Pasay City
 40. Robinsons Magnolia in QC
 41. Santa Ana Port in Davao City
 42. Rizal Park in Davao City
