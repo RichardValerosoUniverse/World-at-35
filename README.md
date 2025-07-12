@@ -36,65 +36,58 @@ Myself of mine is living at the moment in United States Of America all the time 
 1. Spanish Blood & Spanish DNA
 2. Province of Davao Del Sur (Province of DDS)
 3. Valeroso City 1111 in Cubao
-4. 
-5. 
-6. World MasterCard
-7. GitHub
-8. 
-9. DFA NCR Northeast
-10. Diocesan Shrine of Saint Joseph in Cubao
-11. 
-12. Visa
-13. The Valeroso City 8000
-14. Saavedra Street in Toril
-15. Metropolitan Cathedral of San Pedro in Davao City
-16. Municipality of Santa Cruz, Province of DDS
-17. Southern Philippines Medical Center
-18. 
-19. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
-20. Ayala Malls Glorietta in Makati City
-21. Quiapo Church in Manila City
-22. Araneta City in Cubao
-23. Robinsons in Manila City
-24. 
-25. The Marikina Clock Tower Arch
-26. SM Advantage Card
-27. Karada Gift Certificate
-28. Agton Street in Toril
-29. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-30. Ninoy Aquino International Airport 
-31. Yale Street in Cubao
-32. 659 EDSA
-33. SM Megamall in Mandaluyong City
-34. Department Of Health Davao Region
-35. MDC Suki Card
-36. Psychiatric Wards in Davao City Mental Hospital Corporation
-37. Crematorium and the Cremationist (ALIVE VERSION)
-38. Greenhills Shopping Center in San Juan City,MM
-39. Profood International Corporation in Toril
-40. Davao Mediquest Hospital in Toril
-41. Davao Doctors Hospital
-42. LRT Lines 1 to 2 in MM
-43. UST in Manila City
-44. JCB
-45. MRT Lines 1 to 3 in MM
-46. Mall Of Asia in Pasay City
-47. Robinsons Magnolia in QC
-48. Santa Ana Port in Davao City
-49. Rizal Park in Davao City
-50. Davao International Airport
-51. MasterCard
+4. World MasterCard
+5. DFA NCR Northeast
+6. Diocesan Shrine of Saint Joseph in Cubao
+7. Visa
+8. The Valeroso City 8000
+9. Saavedra Street in Toril
+10. Metropolitan Cathedral of San Pedro in Davao City
+11. Municipality of Santa Cruz, Province of DDS
+12. Southern Philippines Medical Center
+13. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
+14. Ayala Malls Glorietta in Makati City
+15. Quiapo Church in Manila City
+16. Araneta City in Cubao
+17. Robinsons in Manila City
+18. The Marikina Clock Tower Arch
+19. SM Advantage Card
+20. Karada Gift Certificate
+21. Agton Street in Toril
+22. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
+23. Ninoy Aquino International Airport 
+24. Yale Street in Cubao
+25. 659 EDSA
+26. SM Megamall in Mandaluyong City
+27. Department Of Health Davao Region
+28. MDC Suki Card
+29. Psychiatric Wards in Davao City Mental Hospital Corporation
+30. Crematorium and the Cremationist (ALIVE VERSION)
+31. Greenhills Shopping Center in San Juan City,MM
+32. Profood International Corporation in Toril
+33. Davao Mediquest Hospital in Toril
+34. Davao Doctors Hospital
+35. LRT Lines 1 to 2 in MM
+36. UST in Manila City
+37. JCB
+38. MRT Lines 1 to 3 in MM
+39. Mall Of Asia in Pasay City
+40. Robinsons Magnolia in QC
+41. Santa Ana Port in Davao City
+42. Rizal Park in Davao City
+43. Davao International Airport
+44. MasterCard
 52. MDC Gift Certificate
-53. Smart Araneta Coliseum
-54. Twitter/X
-55. Simbang Baclaran in Parañaque City
-56. SM North EDSA
-57. Santo Rosario Parish in Toril
-58. Treffpunkt in Liberty Street in Cubao
-59. Bahay Tikiman in Parañaque City
-60. Psychiatrists in Davao City Mental Hospital Corporation
-61. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-62. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
+45. Smart Araneta Coliseum
+46. Twitter/X
+47. Simbang Baclaran in Parañaque City
+48. SM North EDSA
+49. Santo Rosario Parish in Toril
+50. Treffpunkt in Liberty Street in Cubao
+51. Bahay Tikiman in Parañaque City
+52. Psychiatrists in Davao City Mental Hospital Corporation
+53. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+54. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
 
