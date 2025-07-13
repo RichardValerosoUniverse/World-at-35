@@ -64,7 +64,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 29. MasterCard
 30. Twitter/X
 31. National Shrine of Our Mother of Perpetual Help in Parañaque City
-32. Gagmay'ng Kristohanong Katilingban San Antonio de Padua (situated around the vicinity of the Municipality of Santa Cruz, Province of DDS)
+32. Gagmay'ng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the Municipality of Santa Cruz, Province of DDS)
 33. Psychiatrists in Davao City Mental Hospital Corporation
 34. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
