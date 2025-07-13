@@ -56,7 +56,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 21. Crematorium and the Cremationist (ALIVE VERSION)
 22. LRT Lines 1 & 2 in MM
 23. American Express
-24. JCB
+24. Japan Credit Bureau
 25. MRT Line 3 in MM
 26. Santa Ana Port in Davao City
 27. Rizal Park in Davao City
