@@ -41,7 +41,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 6. Diocesan Shrine of Saint Joseph in Cubao
 7. Visa
 8. The Valeroso City 8000
-9. 
+9. Port of Santa Ana in Davao City
 10. Metropolitan Cathedral of San Pedro in Davao City
 11. Municipality of Santa Cruz, Province of DDS
 12. Southern Philippines Medical Center
@@ -58,7 +58,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 23. American Express
 24. Japan Credit Bureau
 25. MRT Line 3 in MM
-26. Santa Ana Port in Davao City
+26. 
 27. Rizal Park in Davao City
 28. University of Santo Tomas Manila City Campus
 29. MasterCard
