@@ -41,36 +41,34 @@ Myself of mine is living at the moment in United States Of America all the time 
 6. Diocesan Shrine of Saint Joseph in Cubao
 7. Visa
 8. The Valeroso City 8000
-9. Saavedra Street in Toril
 10. Metropolitan Cathedral of San Pedro in Davao City
 11. Municipality of Santa Cruz, Province of DDS
 12. Southern Philippines Medical Center
-13. Santa Barbara Villas 1 in the municipality of San Mateo, Province of Rizal 
-15. Quiapo Church in Manila City
-16. Araneta City in Cubao
-19. SM Advantage Card
-20. Karada Gift Certificate
-21. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-22. Ninoy Aquino International Airport 
-23. Department Of Health Davao Region
-24. MDC Suki Card
-25. Psychiatric Wards in Davao City Mental Hospital Corporation
-26. Crematorium and the Cremationist (ALIVE VERSION)
-27. LRT Lines 1 to 2 in MM
-28. UST in Manila City
-29. JCB
-30. MRT Line 3 in MM
-31. Santa Ana Port in Davao City
-32. Rizal Park in Davao City
-33. Davao International Airport
-34. MasterCard
-35. MDC Gift Certificate
-36. Twitter/X
-37. Simbang Baclaran in Parañaque City
-38. Santo Rosario Parish in Toril
-39. Psychiatrists in Davao City Mental Hospital Corporation
-40. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-41. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
+13. Quiapo Church in Manila City
+14. Araneta City in Cubao
+15. SM Advantage Card
+16. Karada Gift Certificate
+17. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
+18. Ninoy Aquino International Airport 
+19. Department Of Health Davao Region
+20. MDC Suki Card
+21. Psychiatric Wards in Davao City Mental Hospital Corporation
+22. Crematorium and the Cremationist (ALIVE VERSION)
+23. LRT Lines 1 to 2 in MM
+24. UST in Manila City
+25. JCB
+26. MRT Line 3 in MM
+27. Santa Ana Port in Davao City
+28. Rizal Park in Davao City
+29. Davao International Airport
+30. MasterCard
+31. MDC Gift Certificate
+32. Twitter/X
+33. Simbang Baclaran in Parañaque City
+34. Santo Rosario Parish in Toril
+35. Psychiatrists in Davao City Mental Hospital Corporation
+36. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+37. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
 
