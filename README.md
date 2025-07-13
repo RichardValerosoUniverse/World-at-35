@@ -58,13 +58,13 @@ Myself of mine is living at the moment in United States Of America all the time 
 23. American Express
 24. Japan Credit Bureau
 25. MRT Line 3 in MM
-26. 
+26. Santisimo Rosario Parish in Toril
 27. Rizal Park in Davao City
 28. University of Santo Tomas Manila City Campus
 29. MasterCard
 30. Twitter/X
 31. National Shrine of Our Mother of Perpetual Help in Parañaque City
-32. Santo Rosario Parish in Toril
+32. 
 33. Psychiatrists in Davao City Mental Hospital Corporation
 34. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
