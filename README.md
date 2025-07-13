@@ -41,6 +41,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 6. Diocesan Shrine of Saint Joseph in Cubao
 7. Visa
 8. The Valeroso City 8000
+9. 
 10. Metropolitan Cathedral of San Pedro in Davao City
 11. Municipality of Santa Cruz, Province of DDS
 12. Southern Philippines Medical Center
