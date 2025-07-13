@@ -67,8 +67,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 32. Santo Rosario Parish in Toril
 33. Psychiatrists in Davao City Mental Hospital Corporation
 34. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
- 👀 👁️ 👀 👁️
+35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
