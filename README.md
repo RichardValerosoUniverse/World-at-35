@@ -49,26 +49,24 @@ Myself of mine is living at the moment in United States Of America all the time 
 15. SM Advantage Card
 16. Karada Gift Certificate
 17. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-18. 
-19. Department Of Health Davao Region
-20. MDC Suki Card
-21. Psychiatric Wards in Davao City Mental Hospital Corporation
-22. Crematorium and the Cremationist (ALIVE VERSION)
-23. LRT Lines 1 & 2 in MM
-24. American Express
-25. JCB
-26. MRT Line 3 in MM
-27. Santa Ana Port in Davao City
-28. Rizal Park in Davao City
-29. University of Santo Tomas Manila City Campus
-30. MasterCard
-31. 
-32. Twitter/X
-33. National Shrine of Our Mother of Perpetual Help in Parañaque City
-34. Santo Rosario Parish in Toril
-35. Psychiatrists in Davao City Mental Hospital Corporation
-36. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-37. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
+18. Department Of Health Davao Region
+19. MDC Suki Card
+20. Psychiatric Wards in Davao City Mental Hospital Corporation
+21. Crematorium and the Cremationist (ALIVE VERSION)
+22. LRT Lines 1 & 2 in MM
+23. American Express
+24. JCB
+25. MRT Line 3 in MM
+26. Santa Ana Port in Davao City
+27. Rizal Park in Davao City
+28. University of Santo Tomas Manila City Campus
+29. MasterCard
+30. Twitter/X
+31. National Shrine of Our Mother of Perpetual Help in Parañaque City
+32. Santo Rosario Parish in Toril
+33. Psychiatrists in Davao City Mental Hospital Corporation
+34. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital). This is located in J.P. Laurel Avenue, Bajada, Davao City.
  👀 👁️ 👀 👁️
 
 
