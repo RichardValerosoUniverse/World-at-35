@@ -44,7 +44,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 10. Metropolitan Cathedral of San Pedro in Davao City
 11. Municipality of Santa Cruz, Province of DDS
 12. Southern Philippines Medical Center
-13. Quiapo Church in Manila City
+13. Minor Basilica of the Black Nazarene in Manila City
 14. Araneta City in Cubao
 15. SM Advantage Card
 16. Karada Gift Certificate
