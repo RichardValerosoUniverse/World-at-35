@@ -54,7 +54,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 20. MDC Suki Card
 21. Psychiatric Wards in Davao City Mental Hospital Corporation
 22. Crematorium and the Cremationist (ALIVE VERSION)
-23. LRT Lines 1 to 2 in MM
+23. LRT Lines 1 & 2 in MM
 24. UST in Manila City
 25. JCB
 26. MRT Line 3 in MM
