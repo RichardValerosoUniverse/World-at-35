@@ -58,7 +58,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 23. American Express
 24. Japan Credit Bureau
 25. MRT Line 3 in MM
-26. Santisimo Rosario Parish in Toril (the newest spirit of UST Manila City)
+26. Santisimo Rosario Parish in Toril (the newest spirit's presence of UST Manila City in Toril)
 27. Rizal Park in Davao City
 28. University of Santo Tomas Manila City Campus
 29. MasterCard
