@@ -62,7 +62,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 28. Rizal Park in Davao City
 29. University of Santo Tomas Manila City Campus
 30. MasterCard
-31. MDC Gift Certificate
+31. 
 32. Twitter/X
 33. National Shrine of Our Mother of Perpetual Help in Parañaque City
 34. Santo Rosario Parish in Toril
