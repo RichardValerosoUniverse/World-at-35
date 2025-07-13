@@ -49,7 +49,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 15. SM Advantage Card
 16. Karada Gift Certificate
 17. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-18. Ninoy Aquino International Airport 
+18. 
 19. Department Of Health Davao Region
 20. MDC Suki Card
 21. Psychiatric Wards in Davao City Mental Hospital Corporation
@@ -60,7 +60,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 26. MRT Line 3 in MM
 27. Santa Ana Port in Davao City
 28. Rizal Park in Davao City
-29. Davao International Airport
+29. 
 30. MasterCard
 31. MDC Gift Certificate
 32. Twitter/X
