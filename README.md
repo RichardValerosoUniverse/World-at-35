@@ -64,7 +64,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 30. MasterCard
 31. MDC Gift Certificate
 32. Twitter/X
-33. Simbang Baclaran in Parañaque City
+33. National Shrine of Our Mother of Perpetual Help in Parañaque City
 34. Santo Rosario Parish in Toril
 35. Psychiatrists in Davao City Mental Hospital Corporation
 36. Administrative Psychiatrist in Davao City Mental Hospital Corporation
