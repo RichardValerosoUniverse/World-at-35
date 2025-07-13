@@ -55,12 +55,12 @@ Myself of mine is living at the moment in United States Of America all the time 
 21. Psychiatric Wards in Davao City Mental Hospital Corporation
 22. Crematorium and the Cremationist (ALIVE VERSION)
 23. LRT Lines 1 & 2 in MM
-24. UST in Manila City
+24. American Express
 25. JCB
 26. MRT Line 3 in MM
 27. Santa Ana Port in Davao City
 28. Rizal Park in Davao City
-29. 
+29. University of Santo Tomas Manila City Campus
 30. MasterCard
 31. MDC Gift Certificate
 32. Twitter/X
