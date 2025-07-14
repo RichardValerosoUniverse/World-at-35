@@ -41,33 +41,29 @@ Myself of mine is living at the moment in United States Of America all the time 
 6. Diocesan Shrine of Saint Joseph in Cubao
 7. Visa
 8. The Valeroso City 8000
-9. Port of Santa Ana in Davao City
-10. Metropolitan Cathedral of San Pedro in Davao City
-11. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
-12. Southern Philippines Medical Center
-13. Minor Basilica of the Black Nazarene in Manila City
-14. Araneta City in Cubao
-15. SM Advantage Card
-16. Karada Gift Certificate
-17. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-18. Department Of Health Davao Region
-19. MDC Suki Card
-20. Psychiatric Wards in Davao City Mental Hospital Corporation
-21. Crematorium and the Cremationist (ALIVE VERSION)
-22. LRT Lines 1 & 2 in MM
-23. American Express
-24. Japan Credit Bureau
-25. MRT Line 3 in MM
-26. 
-27. Rizal Park in Davao City
-28. 
-29. MasterCard
-30. Twitter/X
-31. National Shrine of Our Mother of Perpetual Help in Parañaque City
-32. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-33. Psychiatrists in Davao City Mental Hospital Corporation
-34. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+9. Metropolitan Cathedral of San Pedro in Davao City
+10. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
+11. Southern Philippines Medical Center
+12. Minor Basilica of the Black Nazarene in Manila City
+13. SM Advantage Card
+14. Karada Gift Certificate
+15. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
+16. Department Of Health Davao Region
+17. MDC Suki Card
+18. Psychiatric Wards in Davao City Mental Hospital Corporation
+19. Crematorium and the Cremationist (ALIVE VERSION)
+20. LRT Lines 1 & 2 in MM
+21. American Express
+22. Japan Credit Bureau
+23. MRT Line 3 in MM
+24. Rizal Park in Davao City
+25. MasterCard
+26. Twitter/X
+27. National Shrine of Our Mother of Perpetual Help in Parañaque City
+28. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+29. Psychiatrists in Davao City Mental Hospital Corporation
+30. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+31. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
