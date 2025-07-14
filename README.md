@@ -34,7 +34,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 
 1. Spanish Blood & Spanish DNA
-2. University of Santo Tomas,Manila City Campus
+2. University of Santo Tomas, Manila City Campus
 3. Valeroso City 1111 in Cubao
 4. World MasterCard
 5. DFA NCR Northeast
