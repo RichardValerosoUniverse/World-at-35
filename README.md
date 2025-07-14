@@ -34,7 +34,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 
 1. Spanish Blood & Spanish DNA
-2. 
+2. University of Santo Tomas,Manila City Campus
 3. Valeroso City 1111 in Cubao
 4. World MasterCard
 5. DFA NCR Northeast
@@ -60,11 +60,11 @@ Myself of mine is living at the moment in United States Of America all the time 
 25. MRT Line 3 in MM
 26. Santisimo Rosario Parish in Toril (the parish's presence of UST Manila City in Toril)
 27. Rizal Park in Davao City
-28. University of Santo Tomas Manila City Campus
+28. 
 29. MasterCard
 30. Twitter/X
 31. National Shrine of Our Mother of Perpetual Help in Parañaque City
-32. Gagmay'ng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the Municipality of Santa Cruz, Province of DDS)
+32. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
 33. Psychiatrists in Davao City Mental Hospital Corporation
 34. Administrative Psychiatrist in Davao City Mental Hospital Corporation
 35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
