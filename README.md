@@ -34,7 +34,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 
 
 1. Spanish Blood & Spanish DNA
-2. Province of Davao Del Sur (Province of DDS)
+2. 
 3. Valeroso City 1111 in Cubao
 4. World MasterCard
 5. DFA NCR Northeast
@@ -43,7 +43,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 8. The Valeroso City 8000
 9. Port of Santa Ana in Davao City
 10. Metropolitan Cathedral of San Pedro in Davao City
-11. Municipality of Santa Cruz, Province of DDS
+11. 
 12. Southern Philippines Medical Center
 13. Minor Basilica of the Black Nazarene in Manila City
 14. Araneta City in Cubao
