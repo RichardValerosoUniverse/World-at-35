@@ -56,14 +56,13 @@ Myself of mine is living at the moment in United States Of America all the time 
 21. American Express
 22. Japan Credit Bureau
 23. MRT Line 3 in MM
-24. Rizal Park in Davao City
-25. MasterCard
-26. Twitter/X
-27. National Shrine of Our Mother of Perpetual Help in Parañaque City
-28. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-29. Psychiatrists in Davao City Mental Hospital Corporation
-30. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-31. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+24. MasterCard
+25. Twitter/X
+26. National Shrine of Our Mother of Perpetual Help in Parañaque City
+27. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+28. Psychiatrists in Davao City Mental Hospital Corporation
+29. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+30. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
