@@ -43,7 +43,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 8. The Valeroso City 8000
 9. Port of Santa Ana in Davao City
 10. Metropolitan Cathedral of San Pedro in Davao City
-11. 
+11. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
 12. Southern Philippines Medical Center
 13. Minor Basilica of the Black Nazarene in Manila City
 14. Araneta City in Cubao
@@ -58,7 +58,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 23. American Express
 24. Japan Credit Bureau
 25. MRT Line 3 in MM
-26. Santisimo Rosario Parish in Toril (the parish's presence of UST Manila City in Toril)
+26. 
 27. Rizal Park in Davao City
 28. 
 29. MasterCard
