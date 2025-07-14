@@ -51,7 +51,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 16. Department Of Health Davao Region
 17. MDC Suki Card
 18. Psychiatric Wards in Davao City Mental Hospital Corporation
-19. Crematorium and the Cremationist (ALIVE VERSION)
+19. Cremation death penalty alive version in the Philippines
 20. LRT Lines 1 & 2 in MM
 21. American Express
 22. Japan Credit Bureau
