@@ -52,17 +52,15 @@ Myself of mine is living at the moment in United States Of America all the time 
 17. MDC Suki Card
 18. Psychiatric Wards in Davao City Mental Hospital Corporation
 19. Cremation death penalty alive version in the Philippines
-20. LRT Lines 1 & 2 in MM
-21. American Express
-22. Japan Credit Bureau
-23. MRT Line 3 in MM
-24. MasterCard
-25. Twitter/X
-26. National Shrine of Our Mother of Perpetual Help in Parañaque City
-27. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-28. Psychiatrists in Davao City Mental Hospital Corporation
-29. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-30. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+20. American Express
+21. Japan Credit Bureau
+22. MasterCard
+23. Twitter/X
+24. National Shrine of Our Mother of Perpetual Help in Parañaque City
+25. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+26. Psychiatrists in Davao City Mental Hospital Corporation
+27. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+28. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
