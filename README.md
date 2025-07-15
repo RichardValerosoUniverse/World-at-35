@@ -43,24 +43,22 @@ Myself of mine is living at the moment in United States Of America all the time 
 8. The Valeroso City 8000
 9. Metropolitan Cathedral of San Pedro in Davao City
 10. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
-11. Southern Philippines Medical Center
-12. Minor Basilica of the Black Nazarene in Manila City
-13. SM Advantage Card
-14. Karada Gift Certificate
-15. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-16. Department Of Health Davao Region
-17. MDC Suki Card
-18. Psychiatric Wards in Davao City Mental Hospital Corporation
-19. Cremation death penalty alive version in the Philippines
-20. American Express
-21. Japan Credit Bureau
-22. MasterCard
-23. Twitter/X
-24. National Shrine of Our Mother of Perpetual Help in Parañaque City
-25. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-26. Psychiatrists in Davao City Mental Hospital Corporation
-27. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-28. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+11. Minor Basilica of the Black Nazarene in Manila City
+12. SM Advantage Card
+13. Karada Gift Certificate
+14. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
+15. MDC Suki Card
+16. Psychiatric Wards in Davao City Mental Hospital Corporation
+17. Cremation death penalty alive version in the Philippines
+18. American Express
+19. Japan Credit Bureau
+20. MasterCard
+21. Twitter/X
+22. National Shrine of Our Mother of Perpetual Help in Parañaque City
+23. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+24. Psychiatrists in Davao City Mental Hospital Corporation
+25. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+26. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
