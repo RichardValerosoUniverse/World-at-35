@@ -36,7 +36,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 1. Spanish Blood & Spanish DNA
 2. University of Santo Tomas, Manila City Campus
 3. Valeroso City 1111 in Cubao
-4. World MasterCard
+4. World Elite MasterCard
 5. DFA NCR Northeast
 6. Diocesan Shrine of Saint Joseph in Cubao
 7. Visa
@@ -48,17 +48,15 @@ Myself of mine is living at the moment in United States Of America all the time 
 13. Karada Gift Certificate
 14. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
 15. MDC Suki Card
-16. Psychiatric Wards in Davao City Mental Hospital Corporation
-17. Cremation death penalty alive version in the Philippines
-18. American Express
-19. Japan Credit Bureau
-20. MasterCard
-21. Twitter/X
-22. National Shrine of Our Mother of Perpetual Help in Parañaque City
-23. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-24. Psychiatrists in Davao City Mental Hospital Corporation
-25. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-26. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+16. Cremation death penalty alive version in the Philippines
+17. American Express
+18. Japan Credit Bureau
+19. Twitter/X
+20. National Shrine of Our Mother of Perpetual Help in Parañaque City
+21. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+22. Psychiatrists in Davao City Mental Hospital Corporation
+23. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+24. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
