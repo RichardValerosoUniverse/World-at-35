@@ -37,25 +37,24 @@ Myself of mine is living at the moment in United States Of America all the time 
 2. University of Santo Tomas, Manila City Campus
 3. Valeroso City 1111 in Cubao
 4. World Elite MasterCard
-5. Diocesan Shrine of Saint Joseph in Cubao
-6. Visa
-7. The Valeroso City 8000
-8. Metropolitan Cathedral of San Pedro in Davao City
-9. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
-10. Minor Basilica of the Black Nazarene in Manila City
-11. SM Advantage Card
-12. Karada Gift Certificate
-13. The International Shrine of Our Lady Of Peace & Good Voyage in Antipolo City
-14. MDC Suki Card
-15. Cremation death penalty alive version in the Philippines
-16. American Express
-17. Japan Credit Bureau
-18. Twitter/X
-19. National Shrine of Our Mother of Perpetual Help in Parañaque City
-20. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-21. Psychiatrists in Davao City Mental Hospital Corporation
-22. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-23. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+5. Visa
+6. The Valeroso City 8000
+7. Metropolitan Cathedral of San Pedro in Davao City
+8. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
+9. Minor Basilica of the Black Nazarene in Manila City
+10. SM Advantage Card
+11. Karada Gift Certificate
+12. Philippine peso
+13. MDC Suki Card
+14. Cremation death penalty alive version in the Philippines
+15. American Express
+16. Japan Credit Bureau
+17. Twitter/X
+18. National Shrine of Our Mother of Perpetual Help in Parañaque City
+19. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+20. Psychiatrists in Davao City Mental Hospital Corporation
+21. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+22. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
