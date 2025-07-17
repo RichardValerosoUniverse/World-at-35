@@ -37,7 +37,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 2. Valeroso City 1111
 3. The Valeroso City 8000
 4. Visa
-5. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
+5. Santo Rosario Parish in Toril
 6. Minor Basilica of the Black Nazarene in Manila City
 7. SM Advantage Card
 8. Philippine peso
