@@ -39,22 +39,20 @@ Myself of mine is living at the moment in United States Of America all the time 
 4. World Elite MasterCard
 5. Visa
 6. The Valeroso City 8000
-7. Metropolitan Cathedral of San Pedro in Davao City
-8. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
-9. Minor Basilica of the Black Nazarene in Manila City
-10. SM Advantage Card
-11. Karada Gift Certificate
-12. Philippine peso
-13. MDC Suki Card
-14. Cremation death penalty alive version in the Philippines
-15. American Express
-16. Japan Credit Bureau
-17. Twitter/X
-18. National Shrine of Our Mother of Perpetual Help in Parañaque City
-19. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-20. Psychiatrists in Davao City Mental Hospital Corporation
-21. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-22. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+7. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
+8. Minor Basilica of the Black Nazarene in Manila City
+9. SM Advantage Card
+10. Karada Gift Certificate
+11. Philippine peso
+12. Cremation death penalty alive version in the Philippines
+13. American Express
+14. Japan Credit Bureau
+15. Twitter/X
+16. National Shrine of Our Mother of Perpetual Help in Parañaque City
+17. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+18. Psychiatrists in Davao City Mental Hospital Corporation
+19. Administrative Psychiatrist in Davao City Mental Hospital Corporation
+20. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
