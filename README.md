@@ -33,28 +33,21 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and from to time My Time can be found in some other states whether or not in the state of freedom, state of laughter or state of depression, state of pain, state of revenge, state of lone star, state of one sun, state of seven seas, state of loneliness, state of music, state of smile, state of nothingness, state of imagination, state of luxury, state of fullness, state of whatevah, among others.
 
 
-1. Spanish Blood & Spanish DNA
-2. University of Santo Tomas, Manila City Campus
-3. Valeroso City 1111 in Cubao
-4. World Elite MasterCard
-5. Visa
-6. The Valeroso City 8000
-7. Metropolitan Cathedral of San Pedro in Davao City
-8. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
-9. Minor Basilica of the Black Nazarene in Manila City
-10. SM Advantage Card
-11. Karada Gift Certificate
-12. Philippine peso
-13. MDC Suki Card
-14. Cremation death penalty alive version in the Philippines
-15. American Express
-16. Japan Credit Bureau
-17. Twitter/X
-18. National Shrine of Our Mother of Perpetual Help in Parañaque City
-19. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-20. Psychiatrists in Davao City Mental Hospital Corporation
-21. Administrative Psychiatrist in Davao City Mental Hospital Corporation
-22. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+1. World Elite MasterCard
+2. Valeroso City 1111
+3. The Valeroso City 8000
+4. Visa
+5. Santisimo Rosario Parish in Toril (the UST Manila City's Parish presence in Toril)
+6. Minor Basilica of the Black Nazarene in Manila City
+7. SM Advantage Card
+8. Philippine peso
+9. Cremation death penalty alive version in the Philippines
+10. American Express
+11. Japan Credit Bureau
+12. Twitter/X
+13. National Shrine of Our Mother of Perpetual Help in Parañaque City
+14. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+15. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
