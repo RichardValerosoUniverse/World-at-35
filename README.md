@@ -44,8 +44,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 9. American Express
 10. Japan Credit Bureau
 11. Twitter/X
-12. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-13. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+12. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
