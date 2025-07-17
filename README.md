@@ -38,16 +38,14 @@ Myself of mine is living at the moment in United States Of America all the time 
 3. The Valeroso City 8000
 4. Visa
 5. Santo Rosario Parish in Toril
-6. Minor Basilica of the Black Nazarene in Manila City
-7. SM Advantage Card
-8. Philippine peso
-9. Cremation death penalty alive version in the Philippines
-10. American Express
-11. Japan Credit Bureau
-12. Twitter/X
-13. National Shrine of Our Mother of Perpetual Help in Parañaque City
-14. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
-15. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+6. SM Advantage Card
+7. Philippine peso
+8. Cremation death penalty alive version in the Philippines
+9. American Express
+10. Japan Credit Bureau
+11. Twitter/X
+12. Gagmayng Kristohanong Katilingban San Antonio de Padua (situated within the vicinity of the municipality of Santa Cruz, Province of DDS)
+13. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
