@@ -37,7 +37,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 2. Valeroso City 1111
 3. The Valeroso City 8000
 4. Visa
-5. Time Deposit
+5. Time Deposit account
 6. Checking account
 7. Savings account
 8. Credit card account
