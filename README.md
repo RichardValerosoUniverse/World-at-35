@@ -45,14 +45,15 @@ Myself of mine is living at the moment in United States Of America all the time 
 10. Crypto
 11. GitHub
 12. Facebook
-13. Google
-14. Instagram
-15. Philippine peso
-16. Cremation death penalty alive version in the Philippines
-17. American Express
-18. Japan Credit Bureau
-19. Twitter/X
-20. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+13. Spotify
+14. Google
+15. Instagram
+16. Philippine peso
+17. Cremation death penalty alive version in the Philippines
+18. American Express
+19. Japan Credit Bureau
+20. Twitter/X
+21. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
