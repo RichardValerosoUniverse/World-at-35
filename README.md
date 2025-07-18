@@ -53,20 +53,21 @@ Myself of mine is living at the moment in United States Of America all the time 
 18. PhilHealth Number
 19. Philippine peso
 20. Philippine e-wallet accounts
-21. Street Of Blue Skies
-22. Philippine passport number
-23. Gagmayng Kristohanong Katilingban San Antonio de Padua
-24. Training Completion Certificates
-25. University of Santo Tomas Manila City Campus (School of Medicine)
-26. Tax Identification Number
-27. Cremation death penalty alive version in the Philippines
-28. American Express
-29. Brave Software
-30. Yellow Ribbon/s
-31. Birth Certificate
-32. Japan Credit Bureau
-33. Twitter/X
-34. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+21. 
+22. Street Of Blue Skies
+23. Philippine passport number
+24. Gagmayng Kristohanong Katilingban San Antonio de Padua
+25. Training Completion Certificates
+26. University of Santo Tomas Manila City Campus (School of Medicine)
+27. Tax Identification Number
+28. Cremation death penalty alive version in the Philippines
+29. American Express
+30. Brave Software
+31. Yellow Ribbon/s
+32. Birth Certificate
+33. Japan Credit Bureau
+34. Twitter/X
+35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
