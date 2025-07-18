@@ -38,16 +38,17 @@ Myself of mine is living at the moment in United States Of America all the time 
 3. The Valeroso City 8000
 4. Visa
 5. Time Deposit
-6. Checkbook
-7. Santo Rosario Parish in Toril
-8. SM Advantage Card
-9. Crypto
-10. Philippine peso
-11. Cremation death penalty alive version in the Philippines
-12. American Express
-13. Japan Credit Bureau
-14. Twitter/X
-15. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+6. Checking account
+7. Savings account
+8. Santo Rosario Parish in Toril
+9. SM Advantage Card
+10. Crypto
+11. Philippine peso
+12. Cremation death penalty alive version in the Philippines
+13. American Express
+14. Japan Credit Bureau
+15. Twitter/X
+16. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
