@@ -58,7 +58,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 23. Philippine passport number
 24. Gagmayng Kristohanong Katilingban San Antonio de Padua
 25. Training Completion Certificates
-26. University of Santo Tomas of Manila City (University of Psychiatry and Behavioural Medicine)
+26. Manila City's University of Santo Tomas (University of Psychiatry and Behavioural Medicine)
 27. Tax Identification Number
 28. Cremation death penalty alive version in the Philippines
 29. American Express
