@@ -51,15 +51,16 @@ Myself of mine is living at the moment in United States Of America all the time 
 16. Instagram
 17. PhilHealth Number
 18. Philippine peso
-19. University of Santo Tomas Manila City Campus (School of Medicine)
-20. Tax Identification Number
-21. Cremation death penalty alive version in the Philippines
-22. American Express
-23. Brave Software
-24. Birth Certificate
-25. Japan Credit Bureau
-26. Twitter/X
-27. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+19. Training Completion Certificates
+20. University of Santo Tomas Manila City Campus (School of Medicine)
+21. Tax Identification Number
+22. Cremation death penalty alive version in the Philippines
+23. American Express
+24. Brave Software
+25. Birth Certificate
+26. Japan Credit Bureau
+27. Twitter/X
+28. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
