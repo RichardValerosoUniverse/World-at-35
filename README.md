@@ -50,7 +50,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 15. Google
 16. Instagram
 17. Philippine peso
-18. University of Santo Tomas Manila City Campus
+18. University of Santo Tomas Manila City Campus (School of Medicine)
 19. Tax Identification Number
 20. Cremation death penalty alive version in the Philippines
 21. American Express
