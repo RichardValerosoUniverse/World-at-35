@@ -41,7 +41,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 6. Checking account
 7. Savings account
 8. Credit card account
-9. Santo Rosario Parish in Toril
+9. Sto. Rosario Parish of Davao City
 10. SM Advantage Card
 11. Crypto
 12. GitHub
