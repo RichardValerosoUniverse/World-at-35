@@ -53,7 +53,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 18. PhilHealth Number
 19. Philippine peso
 20. Philippine e-wallet accounts
-21. Philippine National Flag Day (28th day of the month of May)
+21. Philippine National Flag Day (every 28th day of the month of May, annually)
 22. Street Of Blue Skies
 23. Philippine passport number
 24. Gagmayng Kristohanong Katilingban San Antonio de Padua
