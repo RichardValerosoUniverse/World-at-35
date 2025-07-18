@@ -39,12 +39,13 @@ Myself of mine is living at the moment in United States Of America all the time 
 4. Visa
 5. Santo Rosario Parish in Toril
 6. SM Advantage Card
-7. Philippine peso
-8. Cremation death penalty alive version in the Philippines
-9. American Express
-10. Japan Credit Bureau
-11. Twitter/X
-12. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+7. Crypto
+8. Philippine peso
+9. Cremation death penalty alive version in the Philippines
+10. American Express
+11. Japan Credit Bureau
+12. Twitter/X
+13. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
