@@ -51,9 +51,10 @@ Myself of mine is living at the moment in United States Of America all the time 
 16. Philippine peso
 17. Cremation death penalty alive version in the Philippines
 18. American Express
-19. Japan Credit Bureau
-20. Twitter/X
-21. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+19. Brave Software
+20. Japan Credit Bureau
+21. Twitter/X
+22. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
