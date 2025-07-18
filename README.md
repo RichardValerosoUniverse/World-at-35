@@ -48,20 +48,21 @@ Myself of mine is living at the moment in United States Of America all the time 
 13. Facebook
 14. Spotify
 15. Google
-16. Instagram
-17. PhilHealth Number
-18. Philippine peso
-19. Gagmayng Kristohanong Katilingban San Antonio de Padua
-20. Training Completion Certificates
-21. University of Santo Tomas Manila City Campus (School of Medicine)
-22. Tax Identification Number
-23. Cremation death penalty alive version in the Philippines
-24. American Express
-25. Brave Software
-26. Birth Certificate
-27. Japan Credit Bureau
-28. Twitter/X
-29. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+16. Microsoft
+17. Instagram
+18. PhilHealth Number
+19. Philippine peso
+20. Gagmayng Kristohanong Katilingban San Antonio de Padua
+21. Training Completion Certificates
+22. University of Santo Tomas Manila City Campus (School of Medicine)
+23. Tax Identification Number
+24. Cremation death penalty alive version in the Philippines
+25. American Express
+26. Brave Software
+27. Birth Certificate
+28. Japan Credit Bureau
+29. Twitter/X
+30. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
 
 Again, it is what it is nevertheless.
