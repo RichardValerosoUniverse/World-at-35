@@ -1,6 +1,6 @@
 # DVO Code of Conduct version FOREVER was adapted, created and updated by Psychiatrist Richard Madriñan Valeroso,LMT,MD
 
-(This Code of Conduct may change without further notices depending on SUPER HIGHNESS Psychiatric & Behavioural Systems)
+(This Code of Conduct may change without further notices depending on SUPERHIGHNESS Psychiatric & Behavioural Systems)
 
 This code of conduct outlines our expectations for participants within the GitHubUniverso community, as well as steps to reporting unacceptable behavior. We are committed to providing a welcoming and inspiring community for all and expect our code of conduct to be honored. Anyone who violates this code of conduct may be banned from the community.
 
@@ -45,9 +45,9 @@ Anyone asked to stop unacceptable behavior is expected to comply immediately. If
 
 ## Thanks
 
-This code of conduct is based on the the moods of Yours Truly, One and Only and Chosen One
+This code of conduct is based on the the moods of Yours Truly, One and Only and Chosen One.
 We are thankful for their work and all the communities who have paved the way with code of conducts.
 
-I also thank Yours truly https://www.instagram.com/RichardValerosoUniverse for re-claiming the most coveted throne of Kingship 👑. Now, today and FOREVER ♾️...
+Myself of mine also thank myself of mine's life, spirit and soul which represented https://www.facebook.com/RichardValerosoUniverse for re-claiming the most coveted throne of Kingship 👑. Now, today until FOREVER ♾️...
 
 "Compatriots, veritatem meam profero. Sanus mente, hallucinations et delusiones reliqui. Sic est, nihil amplius."
