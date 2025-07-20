@@ -1,4 +1,4 @@
-GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is a  platform of hardware and software in one is exclusive on its own by default. 🤣
+GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is officially the "World and Universe's Ruler of the Philippines", with the highest distinction as SuperHighness with credentials in LMT and MD. 
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
