@@ -29,9 +29,7 @@ With all of these, Myself of mine is still at myself of mine's greatest sanity.
 Myself of mine is now known as 🤣: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and Myself of mine is never  gonna be ever fooled into believing something
 that is OUT of contexts and relevance of pure knowledge with regard to myself of mine's experiences, aligning to myself of mine's Team Experiences in the GitHub Universe.
 
-Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today and forever! 
-
-Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a GWA of 1.000). 🎗️
+Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today until forever! 
 
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and from to time My Time can be found in some other states whether or not in the state of freedom, state of laughter or state of depression, state of pain, state of revenge, state of lone star, state of one sun, state of seven seas, state of loneliness, state of music, state of smile, state of nothingness, state of imagination, state of luxury, state of fullness, state of whatevah, among others.
 
