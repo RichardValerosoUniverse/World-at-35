@@ -75,9 +75,9 @@ Myself of mine is living at the moment in United States Of America all the time 
 Again, it is what it is nevertheless.
 Precisely!
 
-"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPER HIGHNESS" #SUPERHIGHNESS and that is myself of mine, Psychiatrist RMV (Richard Madriñan Valeroso,LMT,MD) is the king of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
+"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPERHIGHNESS", who is myself of mine. Psychiatrist RMV (Richard Madriñan Valeroso,LMT,MD) is the King of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
 
-I am redirect  ed and I have never been DENIED in all my endeavors!!!
+I am redirected and I have never been DENIED in all my endeavors!!!
 
 My Triumphs!!! My sacrifices have turned water into wine and my imaginations into Paradise.
 
