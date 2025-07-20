@@ -40,9 +40,9 @@ Myself of mine is living at the moment in United States Of America all the time 
 3. The Valeroso City 8000
 4. Visa
 5. Time Deposit account
-6. Checking account
-7. Savings account
-8. Credit card account
+6. Philippine Checking account
+7. Philippine Savings accounts
+8. Philippine Credit card accounts
 9. Sto. Rosario Parish of Davao City
 10. SM Advantage Card
 11. Crypto
@@ -65,7 +65,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 28. Cremation death penalty alive version in the Philippines
 29. American Express
 30. Brave Software
-31. Yellow Ribbon/s
+31. Yellow Ribbon icon (🎗️)
 32. Birth Certificate
 33. Japan Credit Bureau
 34. Twitter/X
