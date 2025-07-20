@@ -50,4 +50,6 @@ We are thankful for their work and all the communities who have paved the way wi
 
 Myself of mine has been thanking myself of mine's life, spirit and soul which represented https://www.facebook.com/RichardValerosoUniverse for re-claiming the most coveted throne of Kingship 👑. Now, today until FOREVER ♾️...
 
+Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a GWA of 1.000). 🎗️
+
 "Compatriots, veritatem meam profero. Sanus mente, hallucinations et delusiones reliqui. Sic est, nihil amplius."
