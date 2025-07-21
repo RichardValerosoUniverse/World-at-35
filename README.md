@@ -59,7 +59,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 23. Philippine passport number
 24. Gagmayng Kristohanong Katilingban San Antonio de Padua
 25. Training Completion Certificates
-26. The Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree (Class of 2023, Psychiatry and Behavioural Medicine)
+26. The Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000)
 27. Tax Identification Number
 28. Cremation death penalty alive version in the Philippines
 29. American Express
