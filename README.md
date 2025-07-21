@@ -18,13 +18,9 @@ Myself of mine is never alone. Myself of mine has chosen the sureness to be good
 
 SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo. Myself of mine has completely signified and verified Myself of mine's first, middle and last name. What is applicable to myself of mine is never applicable to the others and the rest. It is entirely on myself of mine's Simus In Fide and Devotion, Dedication & Vocation to Psychiatry and Behavioural Medicine which is the central and highest life, spirit and soul of the World and Universe's Powers.
 
-
 Definitely, Myself of mine deserves the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
 Myself of mine has had Pure Spanish blood with a pure spoken and written Visayan language, majoring in Spoken & written Tagalog (Filipino) Language and, minoring in Philippine, United States (US), & British English both in spoken and written. I'm always proud to be THE ONLY ONE on Earth with such the greatest of everything!
-
-Basically, Myself of mine is digitally creative with the spirits of all existing branches of sciences and technologies and wellness, finance and banking  institutions and sectors including  those fields of warship and battles, cryptocurrencies, visas, 
-JCBs, bancnet, World Elite Mastercard, Discover, UnionPay,  AMEX and the like and a lot more...
 
 With all of these, Myself of mine is still at myself of mine's greatest sanity.
 Myself of mine is now known as 🤣: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and Myself of mine is never  gonna be ever fooled into believing something
