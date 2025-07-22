@@ -32,7 +32,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 
 Myself of mine is living at the moment in United States Of America all the time around 1600 Pennsylvania Avenue NW Washington D.C, DC, United States, Washington, District of Columbia 20500 and from to time My Time can be found in some other states whether or not in the state of freedom, state of laughter or state of depression, state of pain, state of revenge, state of lone star, state of one sun, state of seven seas, state of loneliness, state of music, state of smile, state of nothingness, state of imagination, state of luxury, state of fullness, state of whatevah, among others.
 
-## 35 World and Universe's Life, Soul and Spirit
+## 35 World and Universe's Life, Soul and Spirit 🎗️
 
 1. World Elite MasterCard
 2. Valeroso City 1111
