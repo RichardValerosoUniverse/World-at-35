@@ -3,6 +3,8 @@
 GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is officially the "World and Universe's Ruler of the Philippines", with the highest distinction as SuperHighness with credentials in LMT and MD. Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️
 Definitely, SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is the embodiment of highest excellence!! 🎗️
 
+## GitHub System
+
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -70,6 +72,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 34. Twitter/X
 35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
+## Again and Again!!
 
 Again, it is what it is nevertheless.
 Precisely!
