@@ -3,6 +3,8 @@
 GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is officially the "World and Universe's Ruler of the Philippines", with the highest distinction as SuperHighness with credentials in LMT and MD. Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️
 Definitely, SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is the embodiment of highest excellence!! 🎗️
 
+## GitHub System
+
 The system is used by all institutions for validity and all
 processes. Hence, all fraudulent activities can be monitored.
 There is NO ESCAPE since all transactions and changes/modifications have
@@ -17,6 +19,8 @@ greater than what the environment can feel and attract.
 Life has had different definitions, measuring and magically smiling to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how you perceived life the way it should been applied into something.
 Amidst all adversities in there and here, concentration to where,what,how to put into practice all that you have had from impossibility to possibility is an act of bravery and resilience, executing the skillsets as well as mindsets needed to fight in a daily battle.
 Myself of mine is never alone. Myself of mine has chosen the sureness to be good, bettah and best. Smilingly, the root word is all magic. Cannot be replaced (irreplaceable). #Fire Evah 🤣
+
+## SuperHighness 
 
 SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo. Myself of mine has completely signified and verified Myself of mine's first, middle and last name. What is applicable to myself of mine is never applicable to the others and the rest. It is entirely on myself of mine's Simus In Fide and Devotion, Dedication & Vocation to Psychiatry and Behavioural Medicine which is the central and highest life, spirit and soul of the World and Universe's Powers.
 
@@ -70,6 +74,7 @@ Myself of mine is living at the moment in United States Of America all the time 
 34. Twitter/X
 35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
 
+## Again and Again!! 
 
 Again, it is what it is nevertheless.
 Precisely!
