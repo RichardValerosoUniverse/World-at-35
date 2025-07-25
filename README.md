@@ -57,9 +57,9 @@ Myself of mine is living at the moment in United States Of America all the time 
 19. Philippine peso
 20. Philippine e-wallet accounts
 21. Philippine National Flag Day (every 28th day of the month of May, annually)
-22. Street Of Blue Skies
+22. GKK Sto. Rosario
 23. Philippine passport number
-24. Gagmayng Kristohanong Katilingban San Antonio de Padua
+24. Street Of Blue Skies
 25. Training Completion Certificates
 26. The Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000)
 27. Tax Identification Number
