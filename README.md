@@ -34,16 +34,16 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 
 ## 35 World and Universe's Life, Soul and Spirit 🎗️
 
-1. World Elite MasterCard
+1. SuperHighness World Elite
 2. Valeroso City 1111
 3. The Valeroso City 8000
 4. Visa
-5. Time Deposit account
+5. Time Deposit accoun
 6. Philippine Checking account
 7. Philippine Savings accounts
 8. Philippine Credit card accounts
 9. Sto. Rosario Parish of Davao City
-10. SM Advantage Card
+10. MasterCard
 11. Crypto
 12. GitHub
 13. Facebook
