@@ -67,8 +67,8 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 31. Yellow Ribbon icon (🎗️)
 32. Birth Certificate
 33. Japan Credit Bureau
-34. 
-35. 
+34. City Of Reality
+35. #DefinitelyDavaoCity
 
 ## Again and Again!!
 
