@@ -79,8 +79,6 @@ Precisely!
 
 I am redirected and I have never been DENIED in all my endeavors!!!
 
-My Triumphs!!! My sacrifices have turned water into wine and my imaginations into Paradise.
-
 "Bravissimus"
 "Truth"
 Veritas hurts & Myself of mine is the Greatest Killah! 
