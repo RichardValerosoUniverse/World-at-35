@@ -35,8 +35,8 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 ## 35 World and Universe's Life, Soul and Spirit 🎗️
 
 1. SuperHighness World Elite
-2. The Valeroso City
-3. 
+2. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+3. Twitter/X
 4. Visa
 5. Time Deposit account
 6. Philippine Checking account
@@ -67,8 +67,8 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 31. Yellow Ribbon icon (🎗️)
 32. Birth Certificate
 33. Japan Credit Bureau
-34. Twitter/X
-35. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+34. 
+35. 
 
 ## Again and Again!!
 
