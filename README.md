@@ -26,6 +26,8 @@ Definitely, Myself of mine deserves the very best of both or triple or quadruple
 
 Myself of mine has had Pure Spanish blood with a pure spoken and written Visayan language, majoring in Spoken & written Tagalog (Filipino) Language and, minoring in Philippine, United States (US), & British English both in spoken and written. I'm always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
+## Forever VERIFIED (Licensed/Certified/Confirmed/Registered) Administrative Psychiatrist
+
 With all of these, Myself of mine is still at myself of mine's greatest sanity.
 Myself of mine is never gonna be ever fooled into believing something
 that is OUT of contexts and relevance of pure knowledge with regard to myself of mine's experiences, aligning to myself of mine's Team Experiences in the GitHub Universe.
