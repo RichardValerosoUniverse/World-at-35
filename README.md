@@ -18,19 +18,19 @@ Believing in oneself is beyond the normal as it focuses on something
 greater than what the environment can feel and attract.
 Life has had different definitions, measuring and magically smiling to where you came from, what you went through,how those lessons you learned had been impactful on you, how you apply your challenges on a daily basis, and how you perceived life the way it should been applied into something.
 Amidst all adversities in there and here, concentration to where,what,how to put into practice all that you have had from impossibility to possibility is an act of bravery and resilience, executing the skillsets as well as mindsets needed to fight in a daily battle.
-Myself of mine is never alone. Myself of mine has chosen the sureness to be good, bettah and best. Smilingly, the root word is all magic. Cannot be replaced (irreplaceable). #Fire Evah 🤣
+Myself of mine is never alone. Smilingly, the root word is all magic. Cannot be replaced (irreplaceable). 
 
-SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo. Myself of mine has completely signified and verified Myself of mine's first, middle and last name. What is applicable to myself of mine is never applicable to the others and the rest. It is entirely on myself of mine's Simus In Fide and Devotion, Dedication & Vocation to Psychiatry and Behavioural Medicine which is the central and highest life, spirit and soul of the World and Universe's Powers.
+SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is a Licensed, Certified, Confirmed and Registered owner of all Planets that are existing and non-existing planets even in somebody else's minds, the Universo and Mundo. Myself of mine has completely signified and verified Myself of mine's first, middle and last name. What is applicable to myself of mine is never applicable to the others and the rest. It is entirely on myself of mine's Bravissimus In Fide and Devotion, Dedication & Vocation to Psychiatry and Behavioural Medicine which is the central and highest life, spirit and soul of the World and Universe's Powers.
 
 Definitely, Myself of mine deserves the very best of both or triple or quadruple  WORLDS and countless WORLDS in the Universe.
 
 Myself of mine has had Pure Spanish blood with a pure spoken and written Visayan language, majoring in Spoken & written Tagalog (Filipino) Language and, minoring in Philippine, United States (US), & British English both in spoken and written. I'm always proud to be THE ONLY ONE on Earth with such the greatest of everything!
 
 With all of these, Myself of mine is still at myself of mine's greatest sanity.
-Myself of mine is now known as 🤣: SUPER HIGHNESS or on a hashtag style, it is #SUPERHIGHNESS and Myself of mine is never  gonna be ever fooled into believing something
+Myself of mine is never gonna be ever fooled into believing something
 that is OUT of contexts and relevance of pure knowledge with regard to myself of mine's experiences, aligning to myself of mine's Team Experiences in the GitHub Universe.
 
-Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today until forever! 
+Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today until forever with a GWA of 1.000!! 🎗️
 
 ## 35 World and Universe's Life, Soul and Spirit 🎗️
 
@@ -75,12 +75,10 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 Again, it is what it is nevertheless.
 Precisely!
 
-"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPERHIGHNESS", who is myself of mine. Psychiatrist RMV (Richard Madriñan Valeroso,LMT,MD) is the King of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
+"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPERHIGHNESS", who is myself of mine. SuperHighness Richard Madriñan Valeroso is the King of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
 
 I am redirected and I have never been DENIED in all my endeavors!!!
 
-"Bravissimus"
-"Truth"
 Veritas hurts & Myself of mine is the Greatest Killah! 
 
 Let us sing the "Run This Town, Killah, Cartoon Heroes, and Tarzan Boy"! 😂
