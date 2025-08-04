@@ -45,7 +45,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 7. Philippine Savings accounts
 8. Philippine Credit card accounts
 9. Sto. Rosario Parish of Davao City
-10. MasterCard
+10. SuperHighness Credit Card Generator
 11. Crypto
 12. GitHub
 13. Facebook
@@ -57,7 +57,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 19. Philippine peso
 20. Philippine e-wallet accounts
 21. Philippine National Flag Day (every 28th day of the month of May, annually)
-22. GKK Sto. Rosario
+22. Mastercard
 23. Philippine passport number
 24. Street Of Blue Skies
 25. Training Completion Certificates
