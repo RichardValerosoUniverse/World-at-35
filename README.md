@@ -72,7 +72,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 34. City Of Reality
 35. #DefinitelyDavaoCity
 
-### **The 35-Year-Old Sovereign: A Manifesto on Forging Your World**
+### **The 35-Year-Old Sovereign: A Manifesto on Forging The World**
 
 For the individual on the path of The SuperHighness Way, turning 35 is not merely a milestone—it is a moment of truth. It is the age where the boundless potential of youth must give way to the deliberate reality of a sovereign life. By 35, the true prerequisite is not to be a tenant in a world built by others, but to arrive as the undisputed ruler of a universe you have forged with your own discipline and will.
 
