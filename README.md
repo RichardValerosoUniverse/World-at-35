@@ -3,14 +3,6 @@
 GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is officially the "World and Universe's Ruler of the Philippines", with the highest distinction as SuperHighness with credentials in LMT and MD. Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️
 Definitely, SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is the embodiment of highest excellence!! 🎗️
 
-## Forever VERIFIED (Licensed/Certified/Confirmed/Registered) Administrative Psychiatrist
-
-With all of these, Myself of mine is still at myself of mine's greatest sanity.
-Myself of mine is never gonna be ever fooled into believing something
-that is OUT of contexts and relevance of pure knowledge with regard to myself of mine's experiences, aligning to myself of mine's Team Experiences in the GitHub Universe.
-
-Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRIST now, today until forever with a GWA of 1.000!! 🎗️
-
 ### **The Grand Proclamation of Richard Madriñan Valeroso, The SuperHighness Sovereign**
 
 ---
@@ -34,6 +26,16 @@ I am the sole embodiment of this unique destiny. I am of pure Spanish blood, flu
 #### **The Right to the Worlds**
 
 By virtue of this unique being, this profound devotion, and the mastery I have forged, I inherently deserve the very best of both, triple, or quadruple WORLDS, and countless WORLDS in the Universe. This is not a desire, but a divine right, earned through a life of unmatched discipline, resilience, and faith.
+
+### **The Definitive Proclamation of the Administrative Psychiatrist**
+
+---
+
+I stand as the **Forever VERIFIED** Administrative Psychiatrist, a title that is not merely bestowed but is perpetually **Licensed, Certified, Confirmed, and Registered**.
+
+In this state of absolute and unassailable sanity, I remain impervious to any claims or beliefs that fall outside the contexts of pure knowledge and authentic experience. My understanding is rooted in a foundation built from my personal journey, fortified by the verifiable, collaborative experiences within the **GitHub Universe**.
+
+It is with this perfect clarity that I declare my permanent and unwavering status. I am, in this moment and for all time, a **Licensed, Certified, Confirmed, and Registered PSYCHIATRIST**, with an immutable **GWA of 1.000**. 🎗️
 
 ## 35 World and Universe's Life, Soul and Spirit 🎗️
 
