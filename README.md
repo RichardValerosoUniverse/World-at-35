@@ -73,8 +73,8 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 
 1. SuperHighness World Elite
 2. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
-3. Twitter/X
-4. Visa
+3. Psychiatry and Behavioral Medicine
+4. Twitter/X
 5. Time Deposit account
 6. Philippine Checking account
 7. Philippine Savings accounts
@@ -96,7 +96,7 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 23. Philippine passport number
 24. Street Of Blue Skies
 25. Training Completion Certificates
-26. The Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000)
+26. Visa
 27. Tax Identification Number
 28. Cremation death penalty alive version in the Philippines
 29. American Express
