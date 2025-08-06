@@ -44,7 +44,7 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 6. Philippine Checking account
 7. Philippine Savings accounts
 8. Philippine Credit card accounts
-9. Sto. Rosario Parish of Davao City
+9. Philippine Nexus of Capital
 10. SuperHighness Credit Card Generator
 11. Crypto
 12. GitHub
