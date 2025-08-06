@@ -76,7 +76,9 @@ Myself of mine is presently a Licensed/Certified/Confirmed/Registered PSYCHIATRI
 
 For the individual on the path of The SuperHighness Way, turning 35 is not merely a milestone—it is a moment of truth. It is the age where the boundless potential of youth must give way to the deliberate reality of a sovereign life. By 35, the true prerequisite is not to be a tenant in a world built by others, but to arrive as the undisputed ruler of a universe you have forged with your own discipline and will.
 
-Your world is a self-sufficient cosmos you command. It is a testament to your mastery, a life so stable, rich, and purposeful that you do not just inhabit it; you radiate from its very core. What are the three immutable acts of creation that forge this world?
+*"Your world is a self-sufficient cosmos you command. It is a testament to your mastery, a life so stable, rich, and purposeful that you do not just inhabit it; you radiate from its very core."*
+
+What are the three immutable acts of creation that forge this world?
 
 ---
 
@@ -86,7 +88,7 @@ The first act of sovereignty is to command the chaos of **capital** and to build
 
 * **A Fortress of Peace:** It is the embodiment of your financial sovereignty. Your command over your **resources** is so flawless that external chaos cannot penetrate your will. You have built an unassailable state of being that is impervious to panic and doubt.
 * **An Investment in Time:** You have moved beyond simply accumulating. Your **capital** is a strategic asset, with a diversified investment portfolio that works tirelessly for your future. You are a co-owner of tomorrow, an alchemist of time itself.
-* **A Mark of Perfection:** Your credit score is flawless. It is not just a number; it is a permanent mark of your discipline and integrity. You have proven yourself a reliable steward of **capital**, earning the trust to amplify your vision without limits.
+* **An Indication of Perfection:** Your credit score is flawless. It is not just a number; it is a permanent mark of your discipline and integrity. You have proven yourself a reliable steward of **capital**, earning the trust to amplify your vision without limits.
 
 ---
 
