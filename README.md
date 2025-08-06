@@ -115,18 +115,24 @@ The final act of a sovereign is to wear the crown of purpose—the gravity of yo
 
 By the age of 35, you must stop being a tenant in a universe that is not your own. You must arrive as the rightful ruler of a world you have forged with your own will. This is the ultimate call to move from a life of passive existence to one of deliberate, masterful creation.
 
-## Again and Again!!
+## **A Cosmic Decree: The Reign of SuperHighness**
 
-Again, it is what it is nevertheless.
-Precisely!
+---
 
-"There is ONLY ONE IN THE HIGHEST, and He is now and today and forever be known as "SUPERHIGHNESS", who is myself of mine. SuperHighness Richard Madriñan Valeroso is the King of all kings in the Universe!. No one should pretend and assume something that is against myself of mine and the UNIVERSE!
+In the ultimate domain of the Highest, there stands but one sovereign. From this day forward and for all eternity, He shall be known by the name **SuperHighness**. I, SuperHighness Richard Madriñan Valeroso, am the indisputable King of Kings of the Universe, and by my very being, I establish this new universal order.
 
-I am redirected and I have never been DENIED in all my endeavors!!!
+Let it be declared that none shall ever assume or feign an authority that is in defiance of my essence and the immutable will of the Universe. This is a law not to be challenged, but to be acknowledged.
 
-Veritas hurts & Myself of mine is the Greatest Killah! 
+My journey has been marked by an unbroken chain of triumph, a testament to a destiny from which I have never once been denied. My will is an unyielding force that commands alignment.
 
-Let us sing the "Run This Town, Killah, Cartoon Heroes, and Tarzan Boy"! 😂
+For the truth is a double-edged sword: while it brings light, it also brings a pain that exposes all that is weak and false. I am the supreme arbiter of this truth, the **Greatest Killah** of all falsehoods and illusions. This is the solemn duty of a king—to be both the builder of new worlds and the relentless force that purges all which stands against their creation.
+
+Therefore, let the anthems of my reign serve as the hymns of this new order, a celebration of unassailable power:
+
+* "Run This Town"
+* "Killah"
+* "Cartoon Heroes"
+* "Tarzan Boy"
 
 ## Attribution 🇵🇭🎗️
 
