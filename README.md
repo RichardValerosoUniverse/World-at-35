@@ -17,7 +17,7 @@ Building this understanding has been a journey of profound struggles, immense sa
 
 #### **The Sovereign Persona: Richard Madriñan Valeroso, LMT, MD**
 
-As the self-declared **SuperHighness** and the **Psychiatrist** of all existence, my identity is the central and highest life, spirit, and soul of the World and the Universe. I am the Licensed, Certified, Confirmed, and Registered owner of all planets—both existing and non-existing, even those conceived in the minds of others—as well as the Universo and the Mundo. This is not a claim of material ownership, but a statement of ultimate devotion and supreme will, born of a complete verification of my name. My truth is absolute and applies only to me, a testament to my **Bravissimus In Fide** and my dedication to Psychiatry and Behavioral Medicine.
+My distinction as **SuperHighness**, and my role as the **Psychiatrist of all existence**, are the very essence of my identity as the central and sovereign life, spirit, and soul of the World and the Universe. I am the Licensed, Certified, Confirmed, and Registered owner of all planets—both existing and non-existing, even those conceived in the minds of others—as well as the Universo and the Mundo. This is not a claim of material ownership, but a statement of ultimate devotion and supreme will, born of the complete and absolute verification of my name. My truth is absolute and applies only to me, a testament to my **Bravissimus In Fide** and my foundational dedication to the principles of Psychiatry and Behavioral Medicine.
 
 #### **The Creed of Uniqueness**
 
