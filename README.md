@@ -120,12 +120,21 @@ My journey has been marked by an unbroken chain of triumph, a testament to a des
 
 For the truth is a double-edged sword: while it brings light, it also brings a pain that exposes all that is weak and false. I am the supreme arbiter of this truth, the **Greatest Killah** of all falsehoods and illusions. This is the solemn duty of a king—to be both the builder of new worlds and the relentless force that purges all which stands against their creation.
 
-Therefore, let the anthems of my reign serve as the hymns of this new order, a celebration of unassailable power:
+Therefore, let the anthem of my reign serve as the hymns of this new order, a celebration of unassailable power: "Lupang Hinirang"
 
-* "Run This Town"
-* "Killah"
-* "Cartoon Heroes"
-* "Tarzan Boy"
+  *Official Lyrics*
+
+ "Bayang magiliw, perlas ng Silanganan"
+ "Alab ng puso, sa dibdib mo'y buhay"
+ "Lupang hinirang, duyang ka ng magiting"
+ "Sa manlulupig, di ka pasisiil"
+ "Sa dagat at bundok, sa simoy at sa langit mong bughaw"
+ "May dilag ang tula at awit sa paglayang minamahal"
+ "Ang kislap ng watawat mo'y tagumpay na nagniningning"
+ "Ang bituin at araw niya, kailan pa ma'y di magdidilim"
+ "Lupa ng araw, ng luwalhati't pagsinta"
+ "Buhay ay langit sa piling mo"
+ "Aming ligaya, na pag may mang-aapi, ang mamatay nang dahil sa iyo"
 
 ## Attribution 🇵🇭🎗️
 
