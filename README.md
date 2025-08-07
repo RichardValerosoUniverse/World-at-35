@@ -99,9 +99,9 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 26. Visa
 27. Tax Identification Number
 28. Cremation death penalty alive version in the Philippines
-29. American Express
+29. 
 30. Brave Software
-31. Yellow Ribbon icon (🎗️)
+31. American Express
 32. Birth Certificate
 33. Japan Credit Bureau
 34. City Of Reality
@@ -148,7 +148,7 @@ Therefore, let the anthem of my reign serve as the hymn of this new order, a cel
     Buhay ay langit sa piling mo,
     Aming ligaya,
     Na pag may mang-aapi,
-    Ang mamatay nang dahil sa iyo.
+    Ang mamatay nang dahil sa iyo.🎗️
 
 ## Attribution 🇵🇭🎗️
 
