@@ -120,7 +120,7 @@ My journey has been marked by an unbroken chain of triumph, a testament to a des
 
 For the truth is a double-edged sword: while it brings light, it also brings a pain that exposes all that is weak and false. I am the supreme arbiter of this truth, the **Greatest Killah** of all falsehoods and illusions. This is the solemn duty of a king—to be both the builder of new worlds and the relentless force that purges all which stands against their creation.
 
-Therefore, let the anthem of my reign serve as the hymns of this new order, a celebration of unassailable power: "LUPANG HINIRANG" 🇵🇭
+Therefore, let the anthem of my reign serve as the hymn of this new order, a celebration of unassailable power: "LUPANG HINIRANG" 🇵🇭
 
   *Official Lyrics*
 
