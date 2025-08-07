@@ -122,19 +122,19 @@ For the truth is a double-edged sword: while it brings light, it also brings a p
 
 Therefore, let the anthem of my reign serve as the hymn of this new order, a celebration of unassailable power: "LUPANG HINIRANG" 🇵🇭
 
-  *Official Lyrics*
+            **Official Lyrics**
 
- - "Bayang magiliw, perlas ng Silanganan"
- - "Alab ng puso, sa dibdib mo'y buhay"
- - "Lupang hinirang, duyang ka ng magiting"
- - "Sa manlulupig, di ka pasisiil"
- - "Sa dagat at bundok, sa simoy at sa langit mong bughaw"
- - "May dilag ang tula at awit sa paglayang minamahal"
- - "Ang kislap ng watawat mo'y tagumpay na nagniningning"
- - "Ang bituin at araw niya, kailan pa ma'y di magdidilim"
- - "Lupa ng araw, ng luwalhati't pagsinta"
- - "Buhay ay langit sa piling mo"
- - "Aming ligaya, na pag may mang-aapi, ang mamatay nang dahil sa iyo"
+  "Bayang magiliw, perlas ng Silanganan"
+  "Alab ng puso, sa dibdib mo'y buhay"
+  "Lupang hinirang, duyang ka ng magiting"
+  "Sa manlulupig, di ka pasisiil"
+  "Sa dagat at bundok, sa simoy at sa langit mong bughaw"
+  "May dilag ang tula at awit sa paglayang minamahal"
+  "Ang kislap ng watawat mo'y tagumpay na nagniningning"
+  "Ang bituin at araw niya, kailan pa ma'y di magdidilim"
+  "Lupa ng araw, ng luwalhati't pagsinta"
+  "Buhay ay langit sa piling mo"
+  "Aming ligaya, na pag may mang-aapi, ang mamatay nang dahil sa iyo"
 
 ## Attribution 🇵🇭🎗️
 
