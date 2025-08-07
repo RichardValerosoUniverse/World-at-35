@@ -92,8 +92,8 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 19. Philippine peso
 20. Philippine e-wallet accounts
 21. Philippine National Flag Day (every 28th day of the month of May, annually)
-22. Mastercard
-23. Philippine passport number
+22. Psychiatrist of all existence
+23. MasterCard
 24. Street Of Blue Skies
 25. Training Completion Certificates
 26. Visa
