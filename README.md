@@ -198,7 +198,7 @@ Here is the Visayan translation:
     Ang kahayag sa imong bandila
     Kadaogan nga nagasidlak,
     Ang iyang bituon ug adlaw,
-    Sa kanus-a man, dili magdilim.
+    Sa kanus-a man, dili na mungitngit.
 
     Yuta sa adlaw, sa himaya ug paghigugma,
     Ang kinabuhi paraiso sa imong kilid,
