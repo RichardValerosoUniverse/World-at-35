@@ -122,7 +122,7 @@ For the truth is a double-edged sword: while it brings light, it also brings a p
 
 Therefore, let the anthem of my reign serve as the hymn of this new order, a celebration of unassailable power: "LUPANG HINIRANG" 🇵🇭
 
-Here is the Original Lyrics (Filipino translation)
+Here is the Original Lyrics: Tagalog/Filipino translation:
 
     Bayang magiliw,
     Perlas ng Silanganan,
