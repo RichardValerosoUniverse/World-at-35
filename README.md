@@ -150,6 +150,62 @@ Therefore, let the anthem of my reign serve as the hymn of this new order, a cel
     Na pag may mang-aapi,
     Ang mamatay nang dahil sa iyo.🎗️
 
+ Here is the English translation:
+
+    Beloved country,
+    Pearl of the Orient,
+    The fire of the heart,
+    In your chest is alive.
+
+    Chosen land,
+    You are the cradle of the brave,
+    To the conquerors,
+    You shall never be subdued.
+
+    In the seas and mountains,
+    In the breeze and in your sky so blue,
+    There is splendor in the poem,
+    And song for the freedom we love.
+
+    The sparkle of your flag is
+    A shining victory,
+    Its stars and sun,
+    Shall never be dimmed.
+
+    Land of the sun, of glory and affection,
+    Life is heaven in your embrace,
+    It is our joy,
+    When there is an oppressor,
+    To die for you.
+
+Here is the Visayan translation:
+
+    Yutang minahal,
+    Mutya sa sidlakan,
+    Ang kainit sa kasingkasing,
+    Sa imong dughan buhi.
+
+    Yutang pinili,
+    Duyan ka sa mga isog,
+    Sa manglulupig,
+    Dili ka magpaulipon.
+
+    Sa dagat ug sa bukid,
+    Sa huyohoy ug sa imong langit nga asul,
+    Adunay kaanyag ang balak,
+    Ug awit sa kagawasan nga gimahal.
+
+    Ang kahayag sa imong bandila
+    Kadaogan nga nagasidlak,
+    Ang iyang bituon ug adlaw,
+    Sa kanus-a man, dili magdilim.
+
+    Yuta sa adlaw, sa himaya ug paghigugma,
+    Ang kinabuhi paraiso sa imong kilid,
+    Amoang kalipay,
+    Nga kon may mangdaugdaug,
+    Ang mamatay alang kanimo.🎗️
+
 ## Attribution 🇵🇭🎗️
 
 Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️
