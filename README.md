@@ -176,7 +176,7 @@ Therefore, let the anthem of my reign serve as the hymn of this new order, a cel
     Life is heaven in your embrace,
     It is our joy,
     When there is an oppressor,
-    To die for you.
+    To die for you.🎗️
 
 Here is the Visayan translation:
 
