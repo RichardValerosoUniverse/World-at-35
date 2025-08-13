@@ -72,7 +72,7 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 ## 35 World and Universe's Life, Soul and Spirit 🎗️
 
 1. SuperHighness World Elite
-2. Davao City Mental Hospital Corporation (previously Davao Mental Hospital)
+2. Mental Hospital Of Definitely Davao City (previously Davao Mental Hospital)
 3. Psychiatry and Behavioral Medicine
 4. Twitter/X
 5. Time Deposit account
