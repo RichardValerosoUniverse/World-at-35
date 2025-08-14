@@ -86,7 +86,7 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 13. Facebook
 14. Spotify
 15. Google
-16. Microsoft
+16. The SuperHighness Way
 17. Instagram
 18. PhilHealth Number
 19. Philippine peso
