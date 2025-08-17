@@ -72,7 +72,7 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 
 1. SuperHighness World Elite
 2. Mental Hospital Of Definitely Davao City (previously Davao Mental Hospital)
-3. Psychiatry and Behavioral Medicine
+3. Araw ng Dabaw 2024 and beyond
 4. Twitter/X
 5. Time Deposit account
 6. Philippine Checking account
@@ -83,8 +83,8 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 11. Crypto
 12. GitHub
 13. Facebook
-14. Spotify
-15. Kadayawan Festival 2025 and beyond
+14. Kadayawan 2024 and beyond
+15. Spotify
 16. The SuperHighness Way
 17. Instagram
 18. PhilHealth Number
