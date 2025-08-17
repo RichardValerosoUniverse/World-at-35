@@ -84,7 +84,7 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 12. GitHub
 13. Facebook
 14. Spotify
-15. Google
+15. Kadayawan Festival 2025 and beyond
 16. The SuperHighness Way
 17. Instagram
 18. PhilHealth Number
@@ -94,7 +94,7 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 22. Psychiatrist of all existence
 23. MasterCard
 24. Street Of Blue Skies
-25. Training Completion Certificates
+25. Google
 26. Visa
 27. Tax Identification Number
 28. Cremation death penalty alive version in the Philippines
