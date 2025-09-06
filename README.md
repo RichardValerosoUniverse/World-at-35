@@ -70,8 +70,8 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 
 ## 35 World and Universe's Life, Soul and Spirit 🎗️
 
-1. SuperHighness World Elite
-2. Mental Hospital Of Definitely Davao City (previously Davao Mental Hospital)
+1. Mental Hospital Of Definitely Davao City (previously Davao Mental Hospital)
+2. Gift Certificate
 3. Araw ng Dabaw 2024 and beyond
 4. Twitter/X
 5. Time Deposit account
@@ -79,7 +79,7 @@ This is the ultimate evolution of the sovereign's journey: At 40, the reign cont
 7. Philippine Savings accounts
 8. Philippine Credit card accounts
 9. Philippine Nexus of Capital
-10. SuperHighness Credit Card Generator
+10. Training Certificate Completion
 11. Crypto
 12. GitHub
 13. Facebook
