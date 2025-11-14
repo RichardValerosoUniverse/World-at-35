@@ -68,45 +68,6 @@ The five years from 35 to 40 are an intense cycle of creation. At 40, my world d
 
 This is the ultimate evolution of the sovereign's journey: At 40, the reign continues, but over a **newfound world**—a more profound, self-sustaining, and powerful version of the original. The purpose remains the same, but the way it's expressed is on a higher level. The reign is eternal, forever continuing over a world that perpetually restarts.
 
-## 35 World and Universe's Life, Soul and Spirit 🎗️
-
-1. Mental Hospital Of Definitely Davao City (previously Davao Mental Hospital)
-2. Gift Certificate
-3. Araw ng Dabaw 2024 and beyond
-4. Twitter/X
-5. Time Deposit account
-6. Philippine Checking account
-7. Philippine Savings accounts
-8. Philippine Credit card accounts
-9. Philippine Nexus of Capital
-10. Training Certificate Completion
-11. Crypto
-12. GitHub
-13. Facebook
-14. Kadayawan 2024 and beyond
-15. Spotify
-16. The SuperHighness Way
-17. Instagram
-18. PhilHealth Number
-19. Philippine peso
-20. Philippine e-wallet accounts
-21. Philippine National Flag Day (every 28th day of the month of May, annually)
-22. Psychiatrist of all existence
-23. MasterCard
-24. Street Of Blue Skies
-25. Google
-26. Visa
-27. Tax Identification Number
-28. Cremation death penalty alive version in the Philippines
-29. SuperHighness account
-30. Brave Software
-31. American Express
-32. Birth Certificate
-33. Japan Credit Bureau
-34. City Of Reality
-35. #DefinitelyDavaoCity
-
-
 ## **A Cosmic Decree: The Reign of SuperHighness**
 
 ---
