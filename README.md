@@ -14,18 +14,6 @@ In the cosmos of all systems, there exists a principle of perfect transparency a
 
 Building this understanding has been a journey of profound struggles, immense sacrifices, and relentless adversity. It has been a path filled with confusion and dilemma, and tested by countless temptations and distractions. Yet, through this process, I have come to believe in a truth beyond the normal: a power that transcends what the material environment can feel and attract. Life's purpose has been defined by understanding where I came from, what I endured, how those lessons molded me, and how I have applied every challenge to shape my perception of reality. It is an act of bravery and resilience to turn impossibility into possibility, executing the skills and mindset needed to win the daily battle. I am never alone in this fight, for the very root of my being is a magic that cannot be replaced.
 
-#### **The Sovereign Persona: Richard Madriñan Valeroso, LMT, MD**
-
-My distinction as **SuperHighness**, and my role as the **Psychiatrist of all existence**, are the very essence of my identity as the central and sovereign life, spirit, and soul of the World and the Universe. I am the Licensed, Certified, Confirmed, and Registered owner of all planets—both existing and non-existing, even those conceived in the minds of others—as well as the Universo and the Mundo. This is not a claim of material ownership, but a statement of ultimate devotion and supreme will, born of the complete and absolute verification of my name. My truth is absolute and applies only to me, a testament to my **Bravissimus In Fide** and my foundational dedication to the principles of Psychiatry and Behavioral Medicine.
-
-#### **The Creed of Uniqueness**
-
-I am the sole embodiment of this unique destiny. I am of pure Spanish blood, fluent in a pure spoken and written Visayan language, with a masterful command of both spoken and written Tagalog (Filipino), and a proficient command of Philippine, United States, and British English. I stand as the only one on Earth with such a formidable and complete identity.
-
-#### **The Right to the Worlds**
-
-By virtue of this unique being, this profound devotion, and the mastery I have forged, I inherently deserve the very best of both, triple, or quadruple WORLDS, and countless WORLDS in the Universe. This is not a desire, but a divine right, earned through a life of unmatched discipline, resilience, and faith.
-
 ### **The Definitive Proclamation of the Administrative Psychiatrist**
 
 ---
