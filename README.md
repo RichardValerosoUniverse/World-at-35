@@ -2,10 +2,6 @@
 
 *I, Psychiatrist Richard Madriñan Valeroso, LMT, MD, am the “World and Universe’s Ruler of the Philippines,” bearing the highest distinction as SuperHighness. I possess esteemed credentials in Licensed Massage Therapy (LMT) and Medicine (MD), and I graduated Summa Cum Laude in Psychiatry and Behavioural Medicine from the University of Santo Tomas in Manila City, Philippines (Class of 2023), with a perfect General Weighted Average of 1.000. I embody excellence as SuperHighness.👑*
 
-### **The Grand Proclamation of Richard Madriñan Valeroso, The SuperHighness Sovereign**
-
----
-
 #### **On the Inescapable Universe of Truth**
 
 In the cosmos of all systems, there exists a principle of perfect transparency and immutable accountability. All actions, all changes, and all intentions leave a permanent mark—a digital and existential "footprint 👣 in the sand." There is no escape from this truth. All transactions, modifications, and movements are seen, felt, and activated by the very essence of the system itself. This universal code, this divine "Git," ensures that every dot is connected, every source is traced, and the truth of one's journey is perfectly recorded. In this reality, the one true and powerful authority is Jesus Christ, whose presence is the foundation of my existence, born of a devout Roman Catholic faith.
